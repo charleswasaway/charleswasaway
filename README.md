@@ -9,7 +9,7 @@ Hello, it's nice to meet you. I know you'll most likely not read all of the link
 You can just call me Charles, I frequently play Pony Town in my free time, it's very relaxing. Before you interact, PLEASE know that I am an adult who prefers the Safe Server due to the abundance of cursing and sexual talk in the 18+ Server. 
 Because of this, I ask that you at least be 16 before interacting with me, I take this VERY seriously. You may learn more about me by reading my Pronouns Page & StrawPage, I also allow C+H at any time, unless said otherwise. Stay safe out there!
 
-Frequently Used Avatars (DO NOT COPY THESE):
+Frequently Used Avatars (DO NOT COPY THESE, ANYONE FOUND USING MY AVATARS WILL BE IMMEDIATELY BLOCKED. ALL MY PONIES WILL HAVE EITHER MY GITHUB OR PATREON LINKED):
 
 ![pony-town-hiding skins__(c+h__w2i)-trot-blinking-padded-toy363-4x](https://github.com/user-attachments/assets/f2ddac53-23b8-44dd-b14e-3d1c6929af5c)
 
