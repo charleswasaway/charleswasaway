@@ -11,8 +11,6 @@ Because of this, I ask that you at LEAST be 16 before interacting with me, I tak
 
 Frequently Used Avatars (DO NOT COPY THESE, ANYONE FOUND USING MY AVATARS WILL BE IMMEDIATELY BLOCKED. ALL MY PONIES WILL HAVE EITHER MY GITHUB OR PATREON LINKED):
 
-![pony-town-hiding skins__(c+h__w2i)-trot-blinking-padded-toy363-4x](https://github.com/user-attachments/assets/f2ddac53-23b8-44dd-b14e-3d1c6929af5c)
-
 ![pony-town-i 💙 my sbsf _p {fandom iwvec}-trot-blinking-padded-4x](https://github.com/user-attachments/assets/a6b06c70-bb83-4d49-8dc7-51a468d1b890)
 
 ![pony-town-ginger joo {fandom iwvec}-trot-blinking-padded-toy176-4x](https://github.com/user-attachments/assets/55212617-f609-4b77-ba81-59a37660354a)
