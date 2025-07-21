@@ -41,3 +41,4 @@ Frequently Used Avatars (DO NOT COPY THESE, ANYONE FOUND USING MY AVATARS WILL B
 
 ![739d80f936fc34eb9a83833d527c1cc5](https://github.com/user-attachments/assets/feca4454-6623-474e-8afd-83785bfcdaee)
 
+![b310e44d2ec303594f00e491bf35dd9c](https://github.com/user-attachments/assets/fdcf13e4-acb9-4eff-baf0-b9031bae7ce2)
