@@ -11,7 +11,7 @@ Hello, it's nice to meet you. I know you'll most likely not read all of the link
 You can just call me Charles, I frequently play Pony Town in my free time, it's very relaxing. Before you interact, PLEASE know that I am an adult who prefers the Safe Server due to the abundant use of slurs and sexual talk in the 18+ Server. 
 Because of this, I ask that you at LEAST be 16 before interacting with me, I take this VERY seriously. You may learn more about me by reading my Pronouns Page & StrawPage, I also allow C+H at any time, unless said otherwise. Stay safe out there! (NOTE: I BLOCK AND HIDE FREELY)
 
-Frequently Used Avatars (DO NOT COPY THESE, ANYONE FOUND USING MY AVATARS WILL BE IMMEDIATELY BLOCKED. ALL MY PONIES WILL HAVE EITHER MY GITHUB OR PATREON LINKED. You may find my other avatars on my GitHub):
+Frequently Used Avatars (DO NOT COPY THESE, ANYONE FOUND USING MY AVATARS WILL BE IMMEDIATELY BLOCKED. ALL MY PONIES WILL HAVE EITHER MY GITHUB OR PATREON LINKED. You may find my other avatars on my StrawPage):
 
 ![pony-town-i 💙 my sbsf _p {fandom iwvec}-trot-blinking-padded-4x](https://github.com/user-attachments/assets/a6b06c70-bb83-4d49-8dc7-51a468d1b890)
 
