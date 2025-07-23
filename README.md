@@ -39,6 +39,6 @@ Frequently Used Avatars (DO NOT COPY THESE, ANYONE FOUND USING MY AVATARS WILL B
 
 ![pony-town-ᴅᴏɢᴅᴀʏ ꜱᴀʏꜱ, ꜰᴇᴛᴄʜ! {ᴄᴏᴍꜰ;ᴡ2ɪ}-trot-blinking-padded-ponyplush-4x](https://github.com/user-attachments/assets/e5d16259-aba7-490b-b1ed-c4f2fc9e45af)
 
-![739d80f936fc34eb9a83833d527c1cc5](https://github.com/user-attachments/assets/feca4454-6623-474e-8afd-83785bfcdaee)
+![5ddf5bade564418cb4796ac851edb259](https://github.com/user-attachments/assets/c8a25669-bf77-4936-9ce2-47ab49b1f42b)
 
 ![b310e44d2ec303594f00e491bf35dd9c](https://github.com/user-attachments/assets/fdcf13e4-acb9-4eff-baf0-b9031bae7ce2)
