@@ -7,6 +7,9 @@
 
 ![197f9808a0e302866d75385e1ab22e37](https://github.com/user-attachments/assets/7ce7c45d-fc4e-4971-a30f-0b5e96bbba79)
 
+<img width="376" height="229" alt="Screenshot 2025-08-06 225744" src="https://github.com/user-attachments/assets/148967e2-4db2-42e8-9cf8-ba2f8072b4f3" />
+
+
 Hello, it's nice to meet you. I know you'll most likely not read all of the links I put out, and that's fine, while it would be appreciated it isn't really a big deal. So I'm just going to put some basic information about me here for your convenience.
 You can just call me Charles, I frequently play Pony Town in my free time, it's very relaxing. Before you interact, PLEASE know that I am an adult who prefers the Safe Server due to the abundant use of slurs and sexual talk in the 18+ Server. 
 Because of this, I ask that you at LEAST be 16 before interacting with me, I take this VERY seriously. You may learn more about me by reading my Pronouns Page & StrawPage, I also allow C+H at any time, unless said otherwise. Stay safe out there! (NOTE: I BLOCK AND HIDE FREELY)
