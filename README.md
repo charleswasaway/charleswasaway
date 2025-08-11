@@ -18,7 +18,7 @@ Because of this, I ask that you at LEAST be 16 before interacting with me, I tak
 
 Frequently Used Cosplays (PLEASE DO NOT COPY THESE, ANYONE FOUND USING MY COSPLAYS WILL BE IMMEDIATELY BLOCKED. ALL MY PONIES WILL HAVE EITHER MY GITHUB OR PATREON LINKED. You may find my other cosplays on my StrawPage!):
 
-![pony-town-i 💙 my sbsf _p {fandom iwvec}-trot-blinking-padded-4x](https://github.com/user-attachments/assets/a6b06c70-bb83-4d49-8dc7-51a468d1b890)
+![pony-town-i love my sbsf _p {fandom iwc}-trot-padded-16x (1)](https://github.com/user-attachments/assets/de4cc73a-d242-4666-8fbf-f1f0f8018ea5)
 
 ![pony-town-ginger joo {fandom iwvec}-trot-blinking-padded-toy176-4x](https://github.com/user-attachments/assets/55212617-f609-4b77-ba81-59a37660354a)
 
