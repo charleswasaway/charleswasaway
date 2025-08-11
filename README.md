@@ -18,15 +18,15 @@ Because of this, I ask that you at LEAST be 16 before interacting with me, I tak
 
 Frequently Used Cosplays (PLEASE DO NOT COPY THESE, ANYONE FOUND USING MY COSPLAYS WILL BE IMMEDIATELY BLOCKED. ALL MY PONIES WILL HAVE EITHER MY GITHUB OR PATREON LINKED. You may find my other cosplays on my StrawPage!):
 
-![pony-town-i love my sbsf _p {fandom iwc}-trot-padded-16x (1)](https://github.com/user-attachments/assets/de4cc73a-d242-4666-8fbf-f1f0f8018ea5)
+![pony-town-i love my sbsf _p {fandom iwc}-trot-padded-4x](https://github.com/user-attachments/assets/4333dda1-034c-4254-bbb9-f37e2616e76e)
 
 ![pony-town-ginger joo {fandom iwvec}-trot-blinking-padded-toy176-4x](https://github.com/user-attachments/assets/55212617-f609-4b77-ba81-59a37660354a)
 
 ![pony-town-oh my god they killed me-trot-blinking-padded-toy184-4x](https://github.com/user-attachments/assets/8ce0b7e3-8cf6-4534-b094-161fee913f62)
 
-![pony-town-unhinged blonde enjoyer-trot-blinking-padded-toy31-4x](https://github.com/user-attachments/assets/0e8f6538-9375-46d7-8878-3305e3aed096)
+![pony-town-unhinged blonde enjoyer rmk-trot-padded-4x](https://github.com/user-attachments/assets/c91b13e9-40de-46b2-87aa-c51944bbc423)
 
-![pony-town-he is NOT a twink, shut up 🙏-trot-blinking-padded-toy178-4x](https://github.com/user-attachments/assets/42e3c000-d137-4766-886d-a2f004b9d1c3)
+![pony-town-he is NOT a twink, shut up 🙏-trot-padded-ponyplush-4x](https://github.com/user-attachments/assets/d074fffa-b254-497e-bd73-1720e2d8b20b)
 
 ![pony-town-doesn't shut toilet seat lids-trot-blinking-padded-4x](https://github.com/user-attachments/assets/99d3c211-4487-4c8c-b789-6ea977c70a51)
 
@@ -34,13 +34,17 @@ Frequently Used Cosplays (PLEASE DO NOT COPY THESE, ANYONE FOUND USING MY COSPLA
 
 ![pony-town-”ᴅᴇᴀʀ ʟɪᴛᴛʟᴇ ʙʀᴏᴛʜᴇʀ---”-trot-blinking-padded-toy364-4x](https://github.com/user-attachments/assets/f013abc4-26ee-4fa4-aafd-dae750bb56a5)
 
+![pony-town-”ᴀ ʜᴏᴍᴇ ꜰᴏʀ ꜰʟᴏᴡᴇʀꜱ-” ᴡ2ɪ--trot-padded-4x](https://github.com/user-attachments/assets/00ae71fc-b133-4ab6-8daa-593922f02b05)
+
 ![pony-town-🦋 ꜰʟᴜᴛᴛᴇʀꜱʜʏ🦋-trot-blinking-padded-toy40-4x](https://github.com/user-attachments/assets/b8401195-56dc-4008-844e-5a28e3b79b3b)
 
 ![pony-town-ꜱʜɪᴠᴇʀ ᴍᴇ ᴛɪᴍʙᴇʀꜱ, 3 ᴍɪɴᴜᴛᴇꜱ!-trot-blinking-padded-ponyplush-4x](https://github.com/user-attachments/assets/609feb7a-1914-463e-81fe-99ff35e93775)
 
-![pony-town-deltarune 2026-trot-blinking-padded-ponyplush-4x](https://github.com/user-attachments/assets/2d7f394a-fc99-43bc-9558-01e8ad09ec00)
+![pony-town-ral ral {C+H ✔}-trot-padded-4x](https://github.com/user-attachments/assets/c02fce34-5a2d-4bbf-b9cd-e660a8146e70)
 
-![pony-town-toothpaste boy {w2i_c+h🩷}-trot-blinking-padded-ponyplush-4x](https://github.com/user-attachments/assets/63cb9218-201d-4aeb-a33c-ba34f30695c1)
+![pony-town-deltarune 2026 {C+H ✔}-trot-padded-ponyplush-4x](https://github.com/user-attachments/assets/bc5803c3-b1d1-4cab-9404-cd7683410304)
+
+![pony-town-_texts fountain opener gc_-trot-padded-ponyplush-4x](https://github.com/user-attachments/assets/a1f7865e-d071-4b03-9e91-301ceeb389d7)
 
 ![pony-town-ᴅᴏɢᴅᴀʏ ꜱᴀʏꜱ, ꜰᴇᴛᴄʜ! {ᴄᴏᴍꜰ;ᴡ2ɪ}-trot-blinking-padded-ponyplush-4x](https://github.com/user-attachments/assets/e5d16259-aba7-490b-b1ed-c4f2fc9e45af)
 
