@@ -5,6 +5,11 @@
 ![blinkiesCafe-gD](https://github.com/user-attachments/assets/35ed2b83-ec72-4c5d-82d3-90eab1c0d6da)
 ![blinkiesCafe-bi](https://github.com/user-attachments/assets/dd6c1bec-58a3-4802-adc9-5f5d4a17278f)
 
+<img width="101" height="57" alt="0a6804e2" src="https://github.com/user-attachments/assets/8e1eb359-8194-4b5e-8f4f-25daef3b5bfc" />
+
+![2dace9e3a05bd64725495ef20cf0f1f7](https://github.com/user-attachments/assets/764ddc10-0b84-40cd-9fed-d68f177fad67)
+
+
 ![197f9808a0e302866d75385e1ab22e37](https://github.com/user-attachments/assets/7ce7c45d-fc4e-4971-a30f-0b5e96bbba79)
 
 <img width="376" height="229" alt="Screenshot 2025-08-06 225744" src="https://github.com/user-attachments/assets/148967e2-4db2-42e8-9cf8-ba2f8072b4f3" />
