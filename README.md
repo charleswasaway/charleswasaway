@@ -63,7 +63,4 @@ Frequently Used Cosplays (PLEASE DO NOT COPY THESE, ANYONE FOUND USING MY COSPLA
 
 ![5ddf5bade564418cb4796ac851edb259](https://github.com/user-attachments/assets/c8a25669-bf77-4936-9ce2-47ab49b1f42b)
 
-![b310e44d2ec303594f00e491bf35dd9c](https://github.com/user-attachments/assets/fdcf13e4-acb9-4eff-baf0-b9031bae7ce2)
-
-![bec4aa40fcf15d29cc0ed715a67ed1a6](https://github.com/user-attachments/assets/2b2aaca7-3537-43e4-b7e1-fecdd92f69f6)
-
+![f7a4d74b1dde9e283976f22f7cbe2514 (1)](https://github.com/user-attachments/assets/54ae6bbe-597b-4e90-bc90-9f60cb752106)
