@@ -9,7 +9,7 @@
 
 <img width="693" height="374" alt="Screenshot 2025-08-23 171404" src="https://github.com/user-attachments/assets/f151d3c0-c094-43a5-9023-62ce21493442" />
 
-(Next time, don't remain Anonymous if you want to be an asswipe, have a nice day <3)
+(Next time, don't remain Anonymous if you want to be an asswipe, have a nice day. PLEASE READ MY LINKS BEFORE THINKING ABOUT SAYING SOMETHING SIMILAR TO THIS.)
 
 
 ![197f9808a0e302866d75385e1ab22e37](https://github.com/user-attachments/assets/7ce7c45d-fc4e-4971-a30f-0b5e96bbba79)
