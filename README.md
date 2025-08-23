@@ -14,7 +14,7 @@ You will see both the Bisexual and Lesbian flags on my profile picture and on my
 
 Next time, don’t stay anonymous if you’re just going to be an asswipe. You could have politely asked me why I had both flags listed, and I would have explained. Yes, I’ll admit I hadn’t posted a full clarification before your comment, but that doesn’t make it acceptable.
 
-My Pronouns Page already states that I’m currently questioning my sexuality, though I could have been more specific. That note was there before I made any updates.
+My Pronouns Page already states that I’m currently questioning my sexuality, though I could have been more specific. That note was there before I made any updates to that specific page.
 
 PLEASE READ MY PRONOUNS PAGE BEFORE SAYING SOMETHING LIKE THIS.
 
