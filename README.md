@@ -12,7 +12,7 @@ You may see both the Bisexual and Lesbian flags on my profile picture. This is n
 
 <img width="693" height="374" alt="Screenshot 2025-08-23 171404" src="https://github.com/user-attachments/assets/f151d3c0-c094-43a5-9023-62ce21493442" />
 
-Next time, don’t stay anonymous if you’re just going to be an asswipe. You could have politely asked me why I had both flags on my profile picture, and I would have explained. Yes, I’ll admit I hadn’t posted a full clarification before your comment, but that doesn’t make it acceptable.
+Next time, don’t stay anonymous if you’re just going to be an asswipe. You could have politely asked me why I had both flags listed, and I would have explained. Yes, I’ll admit I hadn’t posted a full clarification before your comment, but that doesn’t make it acceptable.
 
 My Pronouns Page already states that I’m currently questioning my sexuality, though I could have been more specific. That note was there before I made any updates.
 
