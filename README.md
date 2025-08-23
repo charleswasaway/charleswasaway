@@ -11,6 +11,9 @@
 
 (Next time, don't remain Anonymous if you want to be an asswipe, have a nice day. PLEASE READ MY PRONOUNS PAGE BEFORE THINKING ABOUT SAYING SOMETHING SIMILAR TO THIS.)
 
+<img width="695" height="200" alt="Screenshot 2025-08-23 182805" src="https://github.com/user-attachments/assets/a098b773-8494-4406-a44e-62330a5bf0b1" />
+
+(Thank you for presenting your name, Stacy! I appreciate being able to call you out properly for both comments.)
 
 ![197f9808a0e302866d75385e1ab22e37](https://github.com/user-attachments/assets/7ce7c45d-fc4e-4971-a30f-0b5e96bbba79)
 
