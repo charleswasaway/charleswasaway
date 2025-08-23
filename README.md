@@ -1,3 +1,6 @@
+NOTE ABOUT THE FLAGS:
+You may see both the Bisexual and Lesbian flags on my profile picture. This is not because I identify as both at the same time, but because I’m currently questioning my sexuality and trying to figure out which label feels right for me. Having both flags simply represents where I am in my journey and shows the possibilities I’m considering, not a contradiction.
+
 ![266d5e0318e716a6a032abc7a40a96a8](https://github.com/user-attachments/assets/0bc2df70-4bef-470f-bbc4-2393f0c485ab)
 
 ![blinkiesCafe-Fl](https://github.com/user-attachments/assets/b428dcde-6bf6-4bbd-b1a0-1269110f7c81)
@@ -10,9 +13,6 @@
 <img width="693" height="374" alt="Screenshot 2025-08-23 171404" src="https://github.com/user-attachments/assets/f151d3c0-c094-43a5-9023-62ce21493442" />
 
 (Next time, don't remain Anonymous if you want to be an asswipe, you should have just kindly asked me about why I had both flags on my profile picture first, & I would've clarified things for you. Yes, I will admit I didn't have the clarification posted before your comment was made, but it still doesn't make it acceptable. PLEASE READ MY PRONOUNS PAGE BEFORE THINKING ABOUT SAYING SOMETHING SIMILAR TO THIS.)
-
-NOTE ABOUT THE FLAGS:
-You may see both the Bisexual and Lesbian flags on my profile picture. This is not because I identify as both at the same time, but because I’m currently questioning my sexuality and trying to figure out which label feels right for me. Having both flags simply represents where I am in my journey and shows the possibilities I’m considering, not a contradiction.
 
 <img width="695" height="200" alt="Screenshot 2025-08-23 182805" src="https://github.com/user-attachments/assets/a098b773-8494-4406-a44e-62330a5bf0b1" />
 
