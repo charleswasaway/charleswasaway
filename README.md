@@ -1,5 +1,5 @@
 NOTE ABOUT THE FLAGS:
-You may see both the Bisexual and Lesbian flags on my profile picture and on my Pronouns Page. This is not because I identify as both at the same time, but because I’m currently questioning my sexuality and trying to figure out which label feels right for me. Having both flags simply represents where I am in my journey and shows the possibilities I’m considering, not a contradiction.
+You will see both the Bisexual and Lesbian flags on my profile picture and on my Pronouns Page. This is not because I identify as both at the same time, but because I’m currently questioning my sexuality and trying to figure out which label feels right for me. Having both flags simply represents where I am in my journey and shows the possibilities I’m considering, not a contradiction.
 
 ![2dace9e3a05bd64725495ef20cf0f1f7](https://github.com/user-attachments/assets/35c95bdb-67c4-40aa-ba00-5ba95a7eb3ac)
 
