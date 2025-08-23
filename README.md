@@ -5,9 +5,11 @@
 ![blinkiesCafe-gD](https://github.com/user-attachments/assets/35ed2b83-ec72-4c5d-82d3-90eab1c0d6da)
 ![blinkiesCafe-bi](https://github.com/user-attachments/assets/dd6c1bec-58a3-4802-adc9-5f5d4a17278f)
 
-<img width="101" height="57" alt="0a6804e2" src="https://github.com/user-attachments/assets/8e1eb359-8194-4b5e-8f4f-25daef3b5bfc" />
-
 ![2dace9e3a05bd64725495ef20cf0f1f7](https://github.com/user-attachments/assets/764ddc10-0b84-40cd-9fed-d68f177fad67)
+
+<img width="693" height="374" alt="Screenshot 2025-08-23 171404" src="https://github.com/user-attachments/assets/f151d3c0-c094-43a5-9023-62ce21493442" />
+
+(Next time, don't remain Anonymous if you want to be an asswipe, have a nice day <3)
 
 
 ![197f9808a0e302866d75385e1ab22e37](https://github.com/user-attachments/assets/7ce7c45d-fc4e-4971-a30f-0b5e96bbba79)
