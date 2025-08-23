@@ -9,7 +9,7 @@
 
 <img width="693" height="374" alt="Screenshot 2025-08-23 171404" src="https://github.com/user-attachments/assets/f151d3c0-c094-43a5-9023-62ce21493442" />
 
-(Next time, don't remain Anonymous if you want to be an asswipe, you CHOSE to ignore reading my Pronouns Page to make that comment. You should have just kindly asked me about why I had both flags on my profile picture first (since you didn't read my Pronouns Page), & I would've clarified things for you and update the page. PLEASE READ MY PRONOUNS PAGE BEFORE THINKING ABOUT SAYING SOMETHING SIMILAR TO THIS.)
+(Next time, don't remain Anonymous if you want to be an asswipe, you CHOSE to ignore reading my Pronouns Page to make that comment. You should have just kindly asked me about why I had both flags on my profile picture first (since you didn't read my Pronouns Page), & I would've clarified things for you and updated the page. PLEASE READ MY PRONOUNS PAGE BEFORE THINKING ABOUT SAYING SOMETHING SIMILAR TO THIS.)
 
 NOTE ABOUT THE FLAGS:
 You may see both the Bisexual and Lesbian flags on my profile picture. This is not because I identify as both at the same time, but because I’m currently questioning my sexuality and trying to figure out which label feels right for me. Having both flags simply represents where I am in my journey and shows the possibilities I’m considering, not a contradiction.
