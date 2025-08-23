@@ -24,13 +24,15 @@ You may see both the Bisexual and Lesbian flags on my profile picture. This is n
 (Me & The Gang, We're Such Dorks)
 
 
-You can call me Charles. I spend a lot of my free time playing Pony Town, it’s very relaxing and it's a good way to spend my free time. Before interacting, please note that I am an adult and I prefer the Safe Server because the 18+ Server often contains slurs and sexual content. For this reason, I ask that you be at least 16 years old before interacting with me, I take this very seriously.
+Hello! You can call me Charles, I spend a lot of my free time playing Pony Town, it’s very relaxing (Whenever I am not dealing with problematic people). Before interacting, please note that I am an adult and I prefer the Safe Server because the 18+ Server contains slurs and sexual content. For this reason, I ask that you be at least 16 years old before interacting with me, I take this very seriously.
 
 You can learn more about me by checking out my Pronouns Page and StrawPage! I also allow C+H at any time, unless stated otherwise.
 Stay safe out there!
+
 (Note: I block and hide freely.)
 
-Frequently Used Cosplays
+Frequently Used Cosplays!!
+
 PLEASE DO NOT COPY THESE. Anyone found using my cosplays will be immediately blocked. All of my ponies will have either my GitHub or Patreon linked. You can find my other cosplays on my StrawPage.
 
 ![pony-town-i love my sbsf _p {fandom iwc}-trot-padded-4x](https://github.com/user-attachments/assets/4333dda1-034c-4254-bbb9-f37e2616e76e)
