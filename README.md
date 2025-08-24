@@ -26,7 +26,7 @@ Next time, don’t stay anonymous if you’re just going to be an asswipe. You c
 
 My Pronouns Page already states that I’m currently questioning my sexuality, though I could have been more specific. That note was there before I made any updates to that specific page.
 
-PLEASE READ MY PRONOUNS PAGE BEFORE SAYING SOMETHING LIKE THIS.
+(PLEASE READ MY PRONOUNS PAGE BEFORE SAYING SOMETHING LIKE THIS.)
 
 
 <img width="376" height="229" alt="Screenshot 2025-08-06 225744" src="https://github.com/user-attachments/assets/148967e2-4db2-42e8-9cf8-ba2f8072b4f3" />
