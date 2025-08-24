@@ -28,10 +28,6 @@ My Pronouns Page already states that I’m currently questioning my sexuality, t
 
 PLEASE READ MY PRONOUNS PAGE BEFORE SAYING SOMETHING LIKE THIS.
 
-<img width="695" height="200" alt="Screenshot 2025-08-23 182805" src="https://github.com/user-attachments/assets/a098b773-8494-4406-a44e-62330a5bf0b1" />
-
-Thank you for presenting your name, Stacy! I appreciate being able to call you out properly for both comments.
-
 
 <img width="376" height="229" alt="Screenshot 2025-08-06 225744" src="https://github.com/user-attachments/assets/148967e2-4db2-42e8-9cf8-ba2f8072b4f3" />
 
