@@ -1,6 +1,10 @@
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=charleswasaway&color=blue"> </p>
 
-<p align="center"> <img src="(https://spotify-github-profile.kittinanx.com/api/view?uid=oqhfu5vc1lyvi4oew35ue4ddw&cover_image=true&theme=default&show_offline=true&background_color=1d065b&interchange=false&bar_color=bebec6&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)</p>
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=oqhfu5vc1lyvi4oew35ue4ddw&cover_image=true&theme=default&show_offline=true&background_color=1d065b&interchange=false&bar_color=bebec6&bar_color_cover=false" />
+  </a>
+</p>
 
 NOTE ABOUT THE FLAGS:
 You will see both the Bisexual and Lesbian flags on my Pronouns Page. This is not because I identify as both at the same time, but because I’m currently questioning my sexuality and trying to figure out which label feels right for me. Having both flags simply represents where I am in my journey and shows the possibilities I’m considering, not a contradiction.
