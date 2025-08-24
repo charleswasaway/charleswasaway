@@ -1,3 +1,5 @@
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=charleswasaway&color=blue"> </p>
+
 NOTE ABOUT THE FLAGS:
 You will see both the Bisexual and Lesbian flags on my Pronouns Page. This is not because I identify as both at the same time, but because I’m currently questioning my sexuality and trying to figure out which label feels right for me. Having both flags simply represents where I am in my journey and shows the possibilities I’m considering, not a contradiction.
 
