@@ -39,9 +39,9 @@ Hello! You can call me Charles, I spend a lot of my free time playing Pony Town,
 You can learn more about me by checking out my Pronouns Page and StrawPage! I also allow C+H at any time, unless stated otherwise.
 Stay safe out there!
 
-(Stancy/Conquest ILYSM/P YOU ARE SERIOUSLY THE BEST AND I JUST RAGHHHHHHHH!!!!! <3)
-
 (Note: I block and hide freely.)
+
+(Stancy/Conquest ILYSM/P YOU ARE SERIOUSLY THE BEST AND I JUST RAGHHHHHHHH!!!!! <3)
 
 Frequently Used Cosplays!!
 
