@@ -1,5 +1,7 @@
 <p align="center">08/27/2025 <3 
 
+<p align="center">Stancy/Conquest ILYSM POOKIE YOU ARE SERIOUSLY THE BEST AND I JUST RAGHHHHHHHH!!!!! <3
+
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=charleswasaway&color=blue"> </p>
 
 <p align="center">
@@ -42,8 +44,6 @@ You can learn more about me by checking out my Pronouns Page and StrawPage! I al
 Stay safe out there!
 
 (Note: I block and hide freely.)
-
-(Stancy/Conquest ILYSM YOU ARE SERIOUSLY THE BEST AND I JUST RAGHHHHHHHH!!!!! <3)
 
 Frequently Used Cosplays!!
 
