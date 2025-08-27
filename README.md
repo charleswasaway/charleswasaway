@@ -41,7 +41,7 @@ Stay safe out there!
 
 (Note: I block and hide freely.)
 
-(Stancy/Conquest ILYSM/P YOU ARE SERIOUSLY THE BEST AND I JUST RAGHHHHHHHH!!!!! <3)
+(Stancy/Conquest ILYSM YOU ARE SERIOUSLY THE BEST AND I JUST RAGHHHHHHHH!!!!! <3)
 
 Frequently Used Cosplays!!
 
