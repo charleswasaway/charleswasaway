@@ -1,5 +1,3 @@
-<p align="center">08/27/2025 <3 
-
 <p align="center">Stancy/Conquest ILYSM POOKIE YOU ARE SERIOUSLY THE BEST AND I JUST RAGHHHHHHHH!!!!! <3
 
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=charleswasaway&color=blue"> </p>
