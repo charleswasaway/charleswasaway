@@ -1,5 +1,7 @@
 <p align="center">Stancy/Conquest ILYSM POOKIE YOU ARE SERIOUSLY THE BEST AND I JUST RAGHHHHHHHH!!!!! <3
 
+<p align="center">C+H freely unless said otherwise; INT freely unless DNIUID/DNIUF is in my name
+
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=charleswasaway&color=blue"> </p>
 
 <p align="center">
