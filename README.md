@@ -68,6 +68,8 @@ This is MY work, not yours. So don't treat it as such.
 
 ![pony-town-oh my god they killed me-trot-blinking-padded-toy184-4x](https://github.com/user-attachments/assets/8ce0b7e3-8cf6-4534-b094-161fee913f62)
 
+![pony-town-eughhhhh-trot-padded-4x](https://github.com/user-attachments/assets/fb589888-4a0d-4900-9a32-3a4d9af761a4)
+
 ![pony-town-unhinged blonde enjoyer rmk-trot-padded-4x](https://github.com/user-attachments/assets/c91b13e9-40de-46b2-87aa-c51944bbc423)
 
 ![pony-town-he is NOT a twink, shut up 🙏-trot-padded-ponyplush-4x](https://github.com/user-attachments/assets/d074fffa-b254-497e-bd73-1720e2d8b20b)
