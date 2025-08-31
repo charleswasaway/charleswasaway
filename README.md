@@ -43,15 +43,20 @@ Hello! You can call me Charles, I spend a lot of my free time playing Pony Town,
 You can learn more about me by checking out my Pronouns Page and StrawPage! I also allow C+H at any time, unless stated otherwise.
 Stay safe out there!
 
-⚝ Frequently Used Cosplays ⚝
+⚝ Frequently Used Cosplays! ⚝
 
 Please do not copy these, as anyone found using my cosplays will be immediately blocked. All of my ponies will have either my GitHub or Patreon linked, you can also find my other cosplays on my StrawPage.
 
 DO NOT:
+
 ⋆ Copy
+
 ⋆ Use as inspiration or reference
+
 ⋆ Colorpick
+
 ⋆ Screenshot, record, or upload
+
 ⋆ Repost or share in any form
 
 This is MY work, not yours. So don't treat it as such.
