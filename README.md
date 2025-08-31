@@ -38,7 +38,7 @@ My Pronouns Page already states that I’m currently questioning my sexuality, t
 (Me & The Gang, We're Such Dorks)
 
 
-Hello! You can call me Charles, I spend a lot of my free time playing Pony Town, it’s very relaxing (Whenever I am not dealing with problematic people). Before interacting, please note that I am an adult and I prefer the Safe Server because the 18+ Server contains slurs and sexual content but sometimes I will go there with my adult friends. For this reason, I ask that you be at least 16 years old before interacting with me, I take this very seriously.
+Hello! You can call me Charles, I spend a lot of my free time playing Pony Town, it’s very relaxing (Whenever I am not dealing with problematic people). Before interacting, please note that I am an adult and I prefer the Safe Server because the 18+ Server contains slurs and sexual content but sometimes I will go there with my adult friends. I ask that you be at least 16 years old before interacting with me, I take this very seriously.
 
 You can learn more about me by checking out my Pronouns Page and StrawPage! I also allow C+H at any time, unless stated otherwise.
 Stay safe out there!
