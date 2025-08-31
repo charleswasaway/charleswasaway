@@ -1,4 +1,4 @@
-<p align="center">Stancy/Conquest ILYSM POOKIE YOU ARE SERIOUSLY THE BEST AND I JUST RAGHHHHHHHH!!!!! <3
+<p align="center">Stancy/Conquest I love you so much darling, thank you for letting me love you ♡
 
 <p align="center">C+H freely unless said otherwise; INT freely unless DNIUID/DNIUF is in my name
 
