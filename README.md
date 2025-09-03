@@ -71,6 +71,8 @@ This is MY work, not yours. So don't treat it as such.
 
 ![pony-town-unhinged blonde enjoyer rmk-trot-padded-4x](https://github.com/user-attachments/assets/c91b13e9-40de-46b2-87aa-c51944bbc423)
 
+![pony-town-fictkin- fandom iwc--trot-padded-toy31-4x](https://github.com/user-attachments/assets/a407356e-4123-4d16-a2d1-882cad965b42)
+
 ![pony-town-he is NOT a twink, shut up 🙏-trot-padded-ponyplush-4x](https://github.com/user-attachments/assets/d074fffa-b254-497e-bd73-1720e2d8b20b)
 
 ![pony-town-doesn't shut toilet seat lids-trot-blinking-padded-4x](https://github.com/user-attachments/assets/99d3c211-4487-4c8c-b789-6ea977c70a51)
