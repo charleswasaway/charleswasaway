@@ -2,6 +2,8 @@
 
 <p align="center">C+H freely unless said otherwise; INT freely unless DNIUID/DNIUF is in my name
 
+<p align="center">Craig Tucker is a heavy kin of mine, but it doesn’t mean I think I am him. I don't believe in "doubles," so if you kin him too, I could care less.
+
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=charleswasaway&color=blue"> </p>
 
 <p align="center">
@@ -20,8 +22,6 @@ You will see both the Bisexual and Lesbian flags on my Pronouns Page. This is no
 ![blinkiesCafe-Fl](https://github.com/user-attachments/assets/b428dcde-6bf6-4bbd-b1a0-1269110f7c81)
 ![blinkiesCafe-53](https://github.com/user-attachments/assets/411deb7e-dd5e-4790-8e7b-0a1027ed0531)
 ![blinkiesCafe-VF](https://github.com/user-attachments/assets/8ddb8160-cada-45a2-b825-fb6436bd2e62)
-
-Craig Tucker is a heavy kin of mine, but it doesn’t mean I think I am him. I don't believe in "doubles," so if you kin him too, I could care less.
 
 <img width="693" height="374" alt="Screenshot 2025-08-23 171404" src="https://github.com/user-attachments/assets/f151d3c0-c094-43a5-9023-62ce21493442" />
 
