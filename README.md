@@ -12,24 +12,12 @@
   </a>
 </p>
 
-NOTE ABOUT THE FLAGS:
-You will see both the Bisexual and Lesbian flags on my Pronouns Page. This is not because I identify as both at the same time, but because I’m currently questioning my sexuality and trying to figure out which label feels right for me. Having both flags simply represents where I am in my journey and shows the possibilities I’m considering, not a contradiction.
-
-![2dace9e3a05bd64725495ef20cf0f1f7](https://github.com/user-attachments/assets/35c95bdb-67c4-40aa-ba00-5ba95a7eb3ac)
 
 ![266d5e0318e716a6a032abc7a40a96a8](https://github.com/user-attachments/assets/0bc2df70-4bef-470f-bbc4-2393f0c485ab)
 
 ![blinkiesCafe-Fl](https://github.com/user-attachments/assets/b428dcde-6bf6-4bbd-b1a0-1269110f7c81)
 ![blinkiesCafe-53](https://github.com/user-attachments/assets/411deb7e-dd5e-4790-8e7b-0a1027ed0531)
 ![blinkiesCafe-VF](https://github.com/user-attachments/assets/8ddb8160-cada-45a2-b825-fb6436bd2e62)
-
-<img width="693" height="374" alt="Screenshot 2025-08-23 171404" src="https://github.com/user-attachments/assets/f151d3c0-c094-43a5-9023-62ce21493442" />
-
-Next time, don’t stay anonymous if you’re just going to be an asswipe. You could have politely asked me why I had both flags listed, and I would have explained. Yes, I’ll admit I hadn’t posted a full clarification before your comment, but that doesn’t make it acceptable.
-
-My Pronouns Page already states that I’m currently questioning my sexuality, though I could have been more specific. That note was there before I made any updates to that specific page.
-
-(PLEASE READ MY PRONOUNS PAGE BEFORE SAYING SOMETHING LIKE THIS.)
 
 
 <img width="376" height="229" alt="Screenshot 2025-08-06 225744" src="https://github.com/user-attachments/assets/148967e2-4db2-42e8-9cf8-ba2f8072b4f3" />
