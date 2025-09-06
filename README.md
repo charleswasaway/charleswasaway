@@ -4,6 +4,26 @@
 
 <p align="center">Craig Tucker is a heavy kin of mine, but it doesn’t mean I think I am him. I don't believe in "doubles," so if you kin him too, I couldn't care less.
 
+<p align="center">DNI If:
+
+<p align="center">You’re rude or disrespectful
+
+<p align="center">You’re super immature: I don’t have time for unnecessary drama, it's not my problem.
+
+<p align="center">You’re racist, homophobic, transphobic, or any kind of bigot.
+
+<p align="center">You’re flirty or make people uncomfortable.
+
+<p align="center">You don’t respect boundaries or personal space
+
+<p align="center">You’re under 16
+
+<p align="center">You have DNT/DNB in your name, self-explanatory
+
+<p align="center">You actively support or play Dandy’s World despite being aware of the developer drama. You play it, you support the creator, simple as that, you cannot do one without the other.
+
+<p align="center">You're into Hazbin Hotel/Helluva Boss (This may seem insensitive, but I genuinely can't stand the fandom, sorry.)
+
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=charleswasaway&color=blue"> </p>
 
 <p align="center">
