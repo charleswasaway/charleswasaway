@@ -1,8 +1,12 @@
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=charleswasaway&color=blue"> </p>
+
 <p align="center">Stancy/Conquest I love you so much darling, thank you for letting me into your heart ♡
 
 <p align="center">C+H freely unless said otherwise; INT freely unless DNIUID/DNIUF is in my name
 
 <p align="center">Craig Tucker is a heavy kin of mine, but it doesn’t mean I think I am him. I don't believe in "doubles," so if you kin him too, I couldn't care less.
+
+------------------------------------------------------------------------------------------------------------------
 
 <p align="center">DNI If:
 
@@ -24,7 +28,7 @@
 
 <p align="center">You're into Hazbin Hotel/Helluva Boss (This may seem insensitive, but I genuinely can't stand the fandom, sorry.)
 
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=charleswasaway&color=blue"> </p>
+------------------------------------------------------------------------------------------------------------------
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
