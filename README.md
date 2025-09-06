@@ -29,9 +29,6 @@
 
 <p align="center">You actively support or play Dandy’s World despite being aware of the developer drama. You play it, you support the creator, simple as that, you cannot do one without the other.
 
-<p align="center">You're into Hazbin Hotel/Helluva Boss (This may seem insensitive, but I genuinely can't stand the fandom, sorry.)
-
-
 <p align="center">(My StrawPage does not have the last three things listed, so I just put them here).
 
 <p align="center">IF SOMETHING ON MY DNI LIST UPSETS YOU, PLEASE JUST HIDE OR BLOCK ME, I AM NOT IN THE MOOD TO ARGUE WITH ANYONE. THANK YOU!! 
