@@ -28,6 +28,8 @@
 
 <p align="center">You're into Hazbin Hotel/Helluva Boss (This may seem insensitive, but I genuinely can't stand the fandom, sorry.)
 
+<p align="center">(My StrawPage does not have the last three things listed, so I just put them here).
+
 ------------------------------------------------------------------------------------------------------------------
 
 <p align="center">
