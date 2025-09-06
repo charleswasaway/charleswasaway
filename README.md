@@ -56,7 +56,7 @@ Stay safe out there!
 
 ------------------------------------------------------------------------------------------------------------------
  
-Anyone found using my cosplays displayed on my StrawPage in any way, shape, or form will be immediately blocked. All of my ponies will have either my GitHub or Patreon linked, 
+Anyone found using my cosplays displayed on my StrawPage in any way, shape, or form will be immediately blocked. All of my ponies will have either my GitHub or Patreon linked.
 
 DO NOT:
 
