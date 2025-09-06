@@ -1,5 +1,8 @@
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=charleswasaway&color=blue"> </p>
 
+
+<p align="center">08/27/2025 💓
+
 <p align="center">Stancy/Conquest I love you so much darling, thank you for letting me into your heart ♡
 
 <p align="center">C+H freely unless said otherwise; INT freely unless DNIUID/DNIUF is in my name
