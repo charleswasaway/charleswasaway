@@ -75,7 +75,7 @@ DO NOT:
 
 ⋆ Repost or share in any form
 
-This is MY work, not yours. So don't treat it as such.
+That is MY work, not yours. So don't treat it as such.
 
 ------------------------------------------------------------------------------------------------------------------
 
