@@ -5,7 +5,9 @@
 
 <p align="center">Stancy/Conquest I love you so much darling, thank you for letting me into your heart ♡
 
-<p align="center">C+H freely unless said otherwise; INT freely unless DNIUID/DNIUF is in my name
+<p align="center">C+H freely unless said otherwise; INT freely unless DNIUID/DNIUF is in my name 
+
+<p align="center">Please don't hesitate to interact!! I am always interested in meeting new people!! Just don't be weird. 
 
 <p align="center">Craig Tucker is a heavy kin of mine, but it doesn’t mean I think I am him. I don't believe in "doubles," so if you kin him too, I couldn't care less.
 
