@@ -23,11 +23,11 @@
 
 <p align="center">You’re flirty or make people uncomfortable.
 
-<p align="center">You don’t respect boundaries or personal space
+<p align="center">You don’t respect boundaries or personal space.
 
-<p align="center">You’re under 16
+<p align="center">You’re under 16.
 
-<p align="center">You have DNT/DNB in your name, self-explanatory
+<p align="center">You have DNT/DNB in your name, self-explanatory.
 
 <p align="center">You actively support or play Dandy’s World despite being aware of the developer drama. You play it, you support the creator, simple as that, you cannot do one without the other.
 
