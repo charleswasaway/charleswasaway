@@ -9,7 +9,7 @@
 
 <p align="center">Please don't hesitate to interact!! I am always interested in meeting new people!! Just don't be weird.
 
-<p align="center">Craig Tucker is a heavy kin of mine, but it doesn’t mean I think I am him. I don't believe in "doubles," so if you kin him too, I couldn't care less.
+<p align="center">Craig Tucker, Kyle Broflovski, & Stan Marsh are heavy kins of mine, but it doesn’t mean I think I am them. I don't believe in "doubles," so if you kin either of them too, I couldn't care less.
 
 ------------------------------------------------------------------------------------------------------------------
 
