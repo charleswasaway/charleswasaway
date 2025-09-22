@@ -1,11 +1,11 @@
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=charleswasaway&color=blue"> </p>
+
+
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=oqhfu5vc1lyvi4oew35ue4ddw&cover_image=true&theme=default&show_offline=true&background_color=1d065b&interchange=false&bar_color=bebec6&bar_color_cover=false" />
   </a>
 </p>
-
-
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=charleswasaway&color=blue"> </p>
 
 
 <p align="center">08/27/2025 💓
@@ -20,7 +20,7 @@
 
 <p align="center"> You can learn more about me by checking out my Pronouns Page and StrawPage!
 
-<p align="center">NOTE: I love sharing my cosplays, so if you’d like to take inspiration from something I’ve made, please just ask first! As long as you’re not copying the entire cosplay, I don’t mind people taking a little inspiration. All I ask is that you don't screenshot, record, or upload my cosplays elsewhere. All of my cosplays will have either my Patreon or GitHub linked to them, so please know that if there IS someone using my cosplays, they aren't me. 
+<p align="center">I love sharing my cosplays, so if you’d like to take inspiration from something I’ve made, please just ask first! As long as you’re not copying the entire cosplay, I don’t mind people taking a little inspiration. All I ask is that you don't screenshot, record, or upload my cosplays elsewhere. All of my cosplays will have either my Patreon or GitHub linked to them, so please know that if there IS someone using my cosplays, they aren't me. 
 
 ------------------------------------------------------------------------------------------------------------------
 
