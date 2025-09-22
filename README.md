@@ -81,8 +81,6 @@ That is MY work, not yours. So don't treat it as such.
 
 ------------------------------------------------------------------------------------------------------------------
 
-![468765852-7ce7c45d-fc4e-4971-a30f-0b5e96bbba79](https://github.com/user-attachments/assets/da27b301-3c4c-4352-bdb1-75d761c46f97)
-
 ![5ddf5bade564418cb4796ac851edb259](https://github.com/user-attachments/assets/c8a25669-bf77-4936-9ce2-47ab49b1f42b)
 
 ![f7a4d74b1dde9e283976f22f7cbe2514 (1)](https://github.com/user-attachments/assets/54ae6bbe-597b-4e90-bc90-9f60cb752106)
