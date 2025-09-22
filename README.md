@@ -44,8 +44,6 @@
 </p>
 
 
-![266d5e0318e716a6a032abc7a40a96a8](https://github.com/user-attachments/assets/0bc2df70-4bef-470f-bbc4-2393f0c485ab)
-
 ![blinkiesCafe-Fl](https://github.com/user-attachments/assets/b428dcde-6bf6-4bbd-b1a0-1269110f7c81)
 ![blinkiesCafe-53](https://github.com/user-attachments/assets/411deb7e-dd5e-4790-8e7b-0a1027ed0531)
 ![blinkiesCafe-VF](https://github.com/user-attachments/assets/8ddb8160-cada-45a2-b825-fb6436bd2e62)
@@ -58,8 +56,7 @@
 
 Hello! You can call me Charles, I spend a lot of my free time playing Pony Town, it’s very relaxing (Whenever I am not dealing with problematic people). Before interacting, please note that I am an adult and I prefer the Safe Server because the 18+ Server contains slurs and sexual content but sometimes I will go there with my adult friends. I ask that you be at least 16 years old before interacting with me, I take this very seriously.
 
-You can learn more about me by checking out my Pronouns Page and StrawPage! I also allow C+H at any time, unless stated otherwise.
-Stay safe out there!
+You can learn more about me by checking out my Pronouns Page and StrawPage!
 
 ------------------------------------------------------------------------------------------------------------------
  
@@ -80,7 +77,5 @@ DO NOT:
 That is MY work, not yours. So don't treat it as such.
 
 ------------------------------------------------------------------------------------------------------------------
-
-![5ddf5bade564418cb4796ac851edb259](https://github.com/user-attachments/assets/c8a25669-bf77-4936-9ce2-47ab49b1f42b)
 
 ![f7a4d74b1dde9e283976f22f7cbe2514 (1)](https://github.com/user-attachments/assets/54ae6bbe-597b-4e90-bc90-9f60cb752106)
