@@ -48,7 +48,7 @@
 
 ------------------------------------------------------------------------------------------------------------------
 
-<img width="376" height="229" alt="Screenshot 2025-08-06 225744" src="https://github.com/user-attachments/assets/148967e2-4db2-42e8-9cf8-ba2f8072b4f3" />
+<p align="center"> <img width="376" height="229" alt="Screenshot 2025-08-06 225744" src="https://github.com/user-attachments/assets/148967e2-4db2-42e8-9cf8-ba2f8072b4f3" />
 
 <p align="center">(Me & The Gang, We're Such Dorks)
 
