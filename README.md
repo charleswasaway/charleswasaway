@@ -20,8 +20,9 @@
 
 <p align="center">Craig Tucker is a heavy kin of mine, but it doesn’t mean I think I am him. I don't believe in "doubles," so if you kin him too, I couldn't care less. (I also kin Stan & Kyle too, but not as much).
 
-
 <p align="center"> You can learn more about me by checking out my Pronouns Page and StrawPage!
+
+<p align="center">NOTE: I love sharing my cosplays, so if you’d like to take inspiration from something I’ve made, please just ask first! As long as you’re not copying the entire cosplay, I don’t mind people taking a little inspiration. All I ask is that you don't screenshot, record, or upload my cosplays elsewhere. All of my cosplays will have either my Patreon or GitHub linked to them, so please know that if there IS someone using my cosplays, they aren't me. 
 
 ------------------------------------------------------------------------------------------------------------------
 
@@ -51,15 +52,7 @@
 
 <img width="376" height="229" alt="Screenshot 2025-08-06 225744" src="https://github.com/user-attachments/assets/148967e2-4db2-42e8-9cf8-ba2f8072b4f3" />
 
-(Me & The Gang, We're Such Dorks)
-
-
-Hello! You can call me Charles, I spend a lot of my free time playing Pony Town, it’s very relaxing (Whenever I am not dealing with problematic people). Before interacting, please note that I am an adult and I prefer the Safe Server because the 18+ Server contains slurs and sexual content but sometimes I will go there with my adult friends. I ask that you be at least 16 years old before interacting with me, I take this very seriously.
-
-You can learn more about me by checking out my Pronouns Page and StrawPage!
-
-------------------------------------------------------------------------------------------------------------------
- 
+<p align="center">(Me & The Gang, We're Such Dorks)
 
 ------------------------------------------------------------------------------------------------------------------
 
