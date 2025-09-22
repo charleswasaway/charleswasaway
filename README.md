@@ -1,3 +1,12 @@
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=oqhfu5vc1lyvi4oew35ue4ddw&cover_image=true&theme=default&show_offline=true&background_color=1d065b&interchange=false&bar_color=bebec6&bar_color_cover=false" />
+  </a>
+</p>
+
+![blinkiesCafe-Fl](https://github.com/user-attachments/assets/b428dcde-6bf6-4bbd-b1a0-1269110f7c81) ![blinkiesCafe-53](https://github.com/user-attachments/assets/411deb7e-dd5e-4790-8e7b-0a1027ed0531)
+
+
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=charleswasaway&color=blue"> </p>
 
 
@@ -36,18 +45,6 @@
 <p align="center">IF SOMETHING ON MY DNI LIST UPSETS YOU, PLEASE JUST HIDE OR BLOCK ME, I AM NOT IN THE MOOD TO ARGUE WITH ANYONE. THANK YOU!! 
 
 ------------------------------------------------------------------------------------------------------------------
-
-<p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=oqhfu5vc1lyvi4oew35ue4ddw&cover_image=true&theme=default&show_offline=true&background_color=1d065b&interchange=false&bar_color=bebec6&bar_color_cover=false" />
-  </a>
-</p>
-
-
-![blinkiesCafe-Fl](https://github.com/user-attachments/assets/b428dcde-6bf6-4bbd-b1a0-1269110f7c81)
-![blinkiesCafe-53](https://github.com/user-attachments/assets/411deb7e-dd5e-4790-8e7b-0a1027ed0531)
-![blinkiesCafe-VF](https://github.com/user-attachments/assets/8ddb8160-cada-45a2-b825-fb6436bd2e62)
-
 
 <img width="376" height="229" alt="Screenshot 2025-08-06 225744" src="https://github.com/user-attachments/assets/148967e2-4db2-42e8-9cf8-ba2f8072b4f3" />
 
