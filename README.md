@@ -4,8 +4,6 @@
   </a>
 </p>
 
-![blinkiesCafe-Fl](https://github.com/user-attachments/assets/b428dcde-6bf6-4bbd-b1a0-1269110f7c81) ![blinkiesCafe-53](https://github.com/user-attachments/assets/411deb7e-dd5e-4790-8e7b-0a1027ed0531)
-
 
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=charleswasaway&color=blue"> </p>
 
