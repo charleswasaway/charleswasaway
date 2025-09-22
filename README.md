@@ -20,6 +20,9 @@
 
 <p align="center">Craig Tucker is a heavy kin of mine, but it doesn’t mean I think I am him. I don't believe in "doubles," so if you kin him too, I couldn't care less. (I also kin Stan & Kyle too, but not as much).
 
+
+<p align="center"> You can learn more about me by checking out my Pronouns Page and StrawPage!
+
 ------------------------------------------------------------------------------------------------------------------
 
 <p align="center">DNI If:
@@ -57,21 +60,6 @@ You can learn more about me by checking out my Pronouns Page and StrawPage!
 
 ------------------------------------------------------------------------------------------------------------------
  
-Anyone found using any of my cosplays displayed on my StrawPage or Patreon in any way, shape, or form will be immediately blocked. All of my ponies will have either my GitHub or Patreon linked.
-
-DO NOT:
-
-⋆ Copy
-
-⋆ Use as inspiration or reference
-
-⋆ Colorpick
-
-⋆ Screenshot, record, or upload
-
-⋆ Repost or share in any form
-
-That is MY work, not yours. So don't treat it as such.
 
 ------------------------------------------------------------------------------------------------------------------
 
