@@ -20,7 +20,7 @@
 
 <p align="center"> You can learn more about me by checking out my Pronouns Page and StrawPage!
 
-<p align="center">I love sharing my cosplays, so if you’d like to take inspiration from something I’ve made, please just ask first! As long as you’re not copying the entire cosplay, I don’t mind people taking a little inspiration. All I ask is that you don't screenshot, record, or upload my cosplays elsewhere. All of my cosplays will have either my Patreon or GitHub linked to them, so please know that if there IS someone using my cosplays, they aren't me. 
+<p align="center">I love showcasing my cosplays, so if you’d like to take inspiration from something I’ve made, please just ask first! As long as you’re not copying the entire cosplay, I don’t mind people taking a little inspiration. All I ask is that you don't screenshot, record, or upload my cosplays elsewhere. All of my cosplays will have either my Patreon or GitHub linked to them, so please know that if there IS someone using my cosplays, they aren't me. 
 
 ------------------------------------------------------------------------------------------------------------------
 
