@@ -46,6 +46,9 @@
 
 <p align="center">IF SOMETHING ON MY DNI LIST UPSETS YOU, PLEASE JUST HIDE OR BLOCK ME, I AM NOT IN THE MOOD TO ARGUE WITH ANYONE. THANK YOU!! 
 
+<p align="center"><img width="499" height="499" alt="cb9215d19ad93309e8c3633c16adcfd5-removebg-preview" src="https://github.com/user-attachments/assets/4abe2c2f-692d-40ac-8634-318863108c07" />
+
+
 ------------------------------------------------------------------------------------------------------------------
 
 <p align="center"> <img width="376" height="229" alt="Screenshot 2025-08-06 225744" src="https://github.com/user-attachments/assets/148967e2-4db2-42e8-9cf8-ba2f8072b4f3" />
@@ -53,5 +56,3 @@
 <p align="center">(Me & The Gang, We're Such Dorks)
 
 ------------------------------------------------------------------------------------------------------------------
-
-![f7a4d74b1dde9e283976f22f7cbe2514 (1)](https://github.com/user-attachments/assets/54ae6bbe-597b-4e90-bc90-9f60cb752106)
