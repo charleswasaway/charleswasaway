@@ -48,6 +48,7 @@
 
 <p align="center"><img width="499" height="499" alt="cb9215d19ad93309e8c3633c16adcfd5-removebg-preview" src="https://github.com/user-attachments/assets/4abe2c2f-692d-40ac-8634-318863108c07" />
 
+<p align="center">(SOMEONE BUY ME THIS PLEASEPLEASEPLEASEPLEASEPLE)
 
 ------------------------------------------------------------------------------------------------------------------
 
