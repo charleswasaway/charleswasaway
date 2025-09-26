@@ -50,7 +50,12 @@
 
 <p align="center">IF SOMETHING ON MY DNI LIST UPSETS YOU, PLEASE JUST HIDE OR BLOCK ME, I AM NOT IN THE MOOD TO ARGUE WITH ANYONE. THANK YOU!! 
 
+<p align="center"><img width="839" height="386" alt="image" src="https://github.com/user-attachments/assets/ca31a432-64ec-4a8c-bda9-87cc8bda9a0f" />
+
+------------------------------------------------------------------------------------------------------------------
+
 <p align="center"><img width="499" height="499" alt="cb9215d19ad93309e8c3633c16adcfd5-removebg-preview" src="https://github.com/user-attachments/assets/4abe2c2f-692d-40ac-8634-318863108c07" />
+
 
 <p align="center">(SOMEONE BUY ME THIS PLEASEPLEASEPLEASEPLEASEPLE)
 
