@@ -26,6 +26,10 @@
 
 ------------------------------------------------------------------------------------------------------------------
 
+<p align="center">EXTREMELY IMPORTANT NOTE:
+
+<p align="center">I'm an adult, so I want to be upfront about who I’m comfortable interacting with. If you’re under 16, don’t interact with me at ALL. If you’re 16–17, it’s fine if you do, but only with extreme caution, absolutely NO flirting or anything weird whatsoever. You’re welcome to see me as more of an older sibling or parental figure, but nothing beyond that. And just to be clear, if you’re under 13, you shouldn’t even be on the internet to begin with.
+  
 <p align="center">DNI If:
 
 <p align="center">You’re rude or disrespectful.
@@ -37,8 +41,6 @@
 <p align="center">You’re flirty or make people uncomfortable.
 
 <p align="center">You don’t respect boundaries or personal space.
-
-<p align="center">You’re under 16.
 
 <p align="center">You have DNT/DNB in your name, self-explanatory.
 
