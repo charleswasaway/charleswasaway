@@ -18,7 +18,7 @@
 
 <p align="center">Craig Tucker is a heavy kin of mine, but it doesn’t mean I think I am him. I don't believe in "doubles," so if you kin him too, I couldn't care less. (I also kin Stan & Kyle too, but not as much).
 
-<p align="center">I don't mind ships at all when interacting, if I don't like a ship I will let you know. 
+<p align="center">I don't mind ships at all when interacting.
 
 <p align="center"> You can learn more about me by checking out my Pronouns Page and StrawPage!
 
