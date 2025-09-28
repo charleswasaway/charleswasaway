@@ -12,17 +12,17 @@
 
 <p align="center">Stancy/Conquest I love you so much darling, thank you for letting me into your heart ♡
 
-<p align="center">C+H freely unless said otherwise; INT freely unless DNIUID/DNIUF is in my name.
+<p align="center">☆ C+H freely unless said otherwise; INT freely unless DNIUID/DNIUF is in my name. ☆
 
-<p align="center">Please don't hesitate to interact w/me whenever I don't have DNIUID/DNIUF in my name, I am always interested in meeting new people!! Just don't be weird. 
+<p align="center">☆ Please don't hesitate to interact w/me whenever I don't have DNIUID/DNIUF in my name, I am always interested in meeting new people!! Just don't be weird. ☆ 
 
-<p align="center">Craig Tucker is a heavy kin of mine, but it doesn’t mean I think I am him. I don't believe in "doubles," so if you kin him too, I couldn't care less. (I also kin Stan & Kyle too, but not as much).
+<p align="center">☆ Craig Tucker is a heavy kin of mine, but it doesn’t mean I think I am him. I don't believe in "doubles," so if you kin him too, I couldn't care less. (I also kin Stan & Kyle too, but not as much) ☆
 
-<p align="center">I don't mind ships at all when interacting as long as they aren't problematic/illegal.
+<p align="center">☆ I don't mind ships at all when interacting as long as they aren't problematic/illegal. ☆
 
-<p align="center"> You can learn more about me by checking out my Pronouns Page and StrawPage! (Be sure to sign my StrawPage before you leave!! I showcase all the gimmicks I receive on there.)
+<p align="center">☆ You can learn more about me by checking out my Pronouns Page and StrawPage! (Be sure to sign my StrawPage before you leave!! I showcase all the gimmicks I receive on there) ☆
 
-<p align="center">I love showcasing my cosplays, so if you’d like to take inspiration from something I’ve made, please just ask first! As long as you’re not copying the entire cosplay, I don’t mind people taking a little inspiration. All I ask is that you don't screenshot, record, or upload my cosplays elsewhere. All of my cosplays will have either my Patreon or GitHub linked to them, so please know that if there IS someone using my cosplays, they aren't me. 
+<p align="center">☆ I love showcasing my cosplays, so if you’d like to take inspiration from something I’ve made, please just ask first! As long as you’re not copying the entire cosplay, I don’t mind people taking a little inspiration. All I ask is that you don't screenshot, record, or upload my cosplays elsewhere. All of my cosplays will have either my Patreon or GitHub linked to them, so please know that if there IS someone using my cosplays, they aren't me. ☆
 
 ------------------------------------------------------------------------------------------------------------------
 
