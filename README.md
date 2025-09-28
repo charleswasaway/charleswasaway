@@ -16,7 +16,7 @@
 
 <p align="center">Please don't hesitate to interact w/me whenever I don't have DNIUID/DNIUF in my name, I am always interested in meeting new people!! Just don't be weird. 
 
-<p align="center">Craig Tucker is a heavy kin of mine, but it doesn’t mean I think I am him. I don't believe in "doubles," so if you kin him too, I couldn't care less. (I also kin Stan & Kyle too, but not as much).
+<p align="center">Craig Tucker is a heavy kin of mine, but it doesn’t mean I think I am him. I don't believe in "doubles," so if you kin him too, I couldn't care less. (I also kin Gary, Stan, & Kyle too, but not as much).
 
 <p align="center">I don't mind ships at all when interacting as long as they aren't illegal.
 
