@@ -56,7 +56,7 @@
 
 
 
-<p align="center">(Best South Park ship ever btw; Art was drawn by my best friend who also drew my profile picture)
+<p align="center">(Stary is the best South Park ship ever btw if you disagree you're wrong; Art was drawn by my best friend who also drew my profile picture)
 
 ------------------------------------------------------------------------------------------------------------------
 
