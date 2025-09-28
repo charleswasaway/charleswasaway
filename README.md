@@ -52,11 +52,11 @@
 
 ------------------------------------------------------------------------------------------------------------------
 
-<p align="center"><img width="1038" height="661" alt="image" src="https://github.com/user-attachments/assets/a2b2a735-d78c-4107-b458-5d928e548480" />
+<p align="center"><img width="631" height="659" alt="image" src="https://github.com/user-attachments/assets/b8d8647b-f262-483a-8899-54977ece04ec" />
 
 
 
-<p align="center">(Best South Park ship ever btw)
+<p align="center">(Best South Park ship ever btw; Art was drawn by my best friend who also drew my profile picture)
 
 ------------------------------------------------------------------------------------------------------------------
 
