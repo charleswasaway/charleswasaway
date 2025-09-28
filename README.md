@@ -16,7 +16,7 @@
 
 <p align="center">Please don't hesitate to interact w/me whenever I don't have DNIUID/DNIUF in my name, I am always interested in meeting new people!! Just don't be weird. 
 
-<p align="center">Craig Tucker is a heavy kin of mine, but it doesn’t mean I think I am him. I don't believe in "doubles," so if you kin him too, I couldn't care less. (I also kin Gary, Stan, & Kyle too, but not as much).
+<p align="center">Craig Tucker is a heavy kin of mine, but it doesn’t mean I think I am him. I don't believe in "doubles," so if you kin him too, I couldn't care less. (I also kin Stan & Kyle too, but not as much).
 
 <p align="center">I don't mind ships at all when interacting as long as they aren't illegal.
 
@@ -50,14 +50,13 @@
 
 <p align="center">IF SOMETHING ON MY DNI LIST UPSETS YOU, PLEASE JUST HIDE OR BLOCK ME, I AM NOT IN THE MOOD TO ARGUE WITH ANYONE. THANK YOU!! 
 
-<p align="center"><img width="839" height="386" alt="image" src="https://github.com/user-attachments/assets/ca31a432-64ec-4a8c-bda9-87cc8bda9a0f" />
-
 ------------------------------------------------------------------------------------------------------------------
 
-<p align="center"><img width="499" height="499" alt="cb9215d19ad93309e8c3633c16adcfd5-removebg-preview" src="https://github.com/user-attachments/assets/4abe2c2f-692d-40ac-8634-318863108c07" />
+<p align="center"><img width="1038" height="661" alt="image" src="https://github.com/user-attachments/assets/a2b2a735-d78c-4107-b458-5d928e548480" />
 
 
-<p align="center">(SOMEONE BUY ME THIS PLEASEPLEASEPLEASEPLEASEPLE)
+
+<p align="center">(Best South Park ship ever btw)
 
 ------------------------------------------------------------------------------------------------------------------
 
