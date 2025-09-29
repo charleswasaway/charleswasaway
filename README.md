@@ -42,11 +42,9 @@
 
 <p align="center">You don’t respect boundaries or personal space.
 
-<p align="center">You have DNT/DNB in your name, self-explanatory.
-
 <p align="center">You actively support or play Dandy’s World despite being aware of the developer drama. You play it, you support the creator, simple as that, you cannot do one without the other.
 
-<p align="center">(My StrawPage does not have the last two things listed, so I just put them here).
+<p align="center">(My StrawPage does not have the last thing listed, so I just put it here).
 
 <p align="center">IF SOMETHING ON MY DNI LIST UPSETS YOU, PLEASE JUST HIDE OR BLOCK ME, I AM NOT IN THE MOOD TO ARGUE WITH ANYONE. THANK YOU!! 
 
