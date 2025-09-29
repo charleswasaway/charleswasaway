@@ -42,9 +42,13 @@
 
 <p align="center">You don’t respect boundaries or personal space.
 
+<p align="center">You spread or try to force religious/political beliefs on others (I play this game to escape the harsh reality, the last thing I or anyone else needs to see or read is this stuff)
+
+<p align="center">You're a troll, griefer, or you purposely cause trouble for the fun of it (Same category as being rude/disrespectful, but my point still stands) 
+
 <p align="center">You actively support or play Dandy’s World despite being aware of the developer drama. You play it, you support the creator, simple as that, you cannot do one without the other.
 
-<p align="center">(My StrawPage does not have the last thing listed, so I just put it here).
+<p align="center">(My StrawPage does not have the last few things listed, so I just put them here).
 
 <p align="center">IF SOMETHING ON MY DNI LIST UPSETS YOU, PLEASE JUST HIDE OR BLOCK ME, I AM NOT IN THE MOOD TO ARGUE WITH ANYONE. THANK YOU!! 
 
