@@ -46,6 +46,8 @@
 
 <p align="center">You're a troll, griefer, or you purposely cause trouble for the fun of it (Same category as being rude/disrespectful, but my point still stands) 
 
+<p align="center">You bully/harass others just because of a ship they like that isn't even problematic.
+
 <p align="center">You actively support or play Dandy’s World despite being aware of the developer drama. You play it, you support the creator, simple as that, you cannot do one without the other.
 
 <p align="center">(My StrawPage does not have the last few things listed, so I just put them here).
