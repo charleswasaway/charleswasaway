@@ -20,7 +20,7 @@
 
 <p align="center">☆ I don't mind ships at all when interacting as long as they aren't problematic/illegal. ☆
 
-<p align="center">☆ You can learn more about me by checking out my Pronouns Page and StrawPage! (Be sure to sign my StrawPage before you leave!! I showcase all the gimmicks I receive on there) ☆
+<p align="center">☆ You can learn more about me by checking out my Pronouns Page & StrawPage! (Be sure to sign my StrawPage before you leave!! I showcase all the gimmicks I receive on there) ☆
 
 <p align="center">☆ I love showcasing my cosplays, so if you’d like to take inspiration from something I’ve made, please just ask first! As long as you’re not copying the entire cosplay, I don’t mind people taking a little inspiration. All I ask is that you don't screenshot, record, or upload my cosplays elsewhere. All of my cosplays will have either my Patreon or GitHub linked to them, so please know that if there IS someone using my cosplays, they aren't me. ☆
 
@@ -32,9 +32,9 @@
   
 <p align="center">DNI If:
 
-<p align="center">You’re rude or disrespectful: COMMON SENSE.
+<p align="center">You’re rude or disrespectful.
 
-<p align="center">You’re racist, homophobic, transphobic, or any kind of bigot: COMMON SENSE.
+<p align="center">You’re racist, homophobic, transphobic, or any kind of bigot.
 
 <p align="center">You’re super immature: I don’t have time for unnecessary drama, it's not my problem.
 
@@ -48,9 +48,9 @@
 
 <p align="center">You spread or try to force religious/political beliefs on others: I play this game to escape our harsh and corrupt reality, the last thing I or anyone else needs to see or read is that stuff.
 
-<p align="center">You bully/harass others just because of a ship they like that isn't even problematic: Looking at all of you reading this now, don't be like that.
+<p align="center">You bully/harass others just because of a ship they like that isn't even problematic.
 
-<p align="center">You like TCOAAL: The story is digusting, and most of the fans are downright unhinged.
+<p align="center">You like TCOAAL: The story is digusting, & most of the fans are downright unhinged.
 
 <p align="center">You actively support or play Dandy’s World despite being aware of the developer drama. You play it, you support the creator, simple as that, you cannot do one without the other.
 
