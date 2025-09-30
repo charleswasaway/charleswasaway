@@ -42,7 +42,7 @@
 
 <p align="center">You don’t respect boundaries or personal space: Can't respect these simple things? Expect to get ignored/blocked.
 
-<p align="center">You're a proshipper: I don't even want to see people try to excuse it with the "Fiction doesn't affect reality" bs.
+<p align="center">You're a proshipper: I don't even want to see people try to excuse it with the "fiction doesn't affect reality" bs.
 
 <p align="center">You watch g0r3 content: Anyone who finds enjoyment in these types of videos needs to get off the internet indefinitely.
 
