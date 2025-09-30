@@ -32,27 +32,31 @@
   
 <p align="center">DNI If:
 
-<p align="center">You’re rude or disrespectful.
+<p align="center">You’re rude or disrespectful: COMMON SENSE.
 
-<p align="center">You’re super immature: I don’t have time for unnecessary drama, it's not my problem.
+<p align="center">You’re super immature: I don’t have time for unnecessary drama, it's not my problem. Go whine about it elsewhere.
 
-<p align="center">You’re racist, homophobic, transphobic, or any kind of bigot.
+<p align="center">You’re racist, homophobic, transphobic, or any kind of bigot: COMMON SENSE.
 
-<p align="center">You’re flirty or make people uncomfortable.
+<p align="center">You’re flirty or make people uncomfortable: I am an adult, anyone, and I mean ANYONE found flirting w/me will be blocked. (Unless it's you Stancy ily pookie ♡)
 
-<p align="center">You don’t respect boundaries or personal space.
+<p align="center">You don’t respect boundaries or personal space: Can't respect these simple things, expect to get ignored/blocked.
 
-<p align="center">You spread or try to force religious/political beliefs on others: I play this game to escape the harsh reality, the last thing I or anyone else needs to see or read is that stuff.
+<p align="center">You're a proshipper: Do I even need to explain this one? Don't even bother trying to excuse it with the "Fiction doesn't affect reality" argument, because it very much does affect reality.
+
+<p align="center">You watch g0r3 content: Genuinely what is wrong with people who watch this stuff, anyone who finds enjoyment in these types of videos needs to get off the internet indefinitely.
+
+<p align="center">You spread or try to force religious/political beliefs on others: I play this game to escape the harsh and corrupt reality, the last thing I or anyone else needs to see or read is that stuff.
 
 <p align="center">You're a troll, griefer, or you purposely cause trouble for the fun of it: Same category as being rude/disrespectful, but my point still stands.
 
-<p align="center">You bully/harass others just because of a ship they like that isn't even problematic.
+<p align="center">You bully/harass others just because of a ship they like that isn't even problematic: Looking at all of you reading this now, don't be like that.
 
 <p align="center">You actively support or play Dandy’s World despite being aware of the developer drama. You play it, you support the creator, simple as that, you cannot do one without the other.
 
-<p align="center">(My StrawPage does not have the last few things listed, so I just put them here)
+<p align="center">(My StrawPage does not have the last few things listed due to me not feeling like rearranging everything, so I just put them all here).
 
-<p align="center">IF SOMETHING ON MY DNI LIST UPSETS YOU, PLEASE JUST HIDE OR BLOCK ME, I AM NOT IN THE MOOD TO ARGUE WITH ANYONE. THANK YOU!! 
+<p align="center">IF SOMETHING ON MY DNI LIST UPSETS YOU, (WHICH IT SHOULDN'T) PLEASE JUST HIDE OR BLOCK ME, I AM NOT IN THE MOOD TO ARGUE WITH ANYONE. THANK YOU!! 
 
 ------------------------------------------------------------------------------------------------------------------
 
