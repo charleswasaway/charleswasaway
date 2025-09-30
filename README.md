@@ -40,7 +40,7 @@
 
 <p align="center">You’re flirty or make people uncomfortable: ANYONE found flirting w/me will be blocked. (Unless it's Stancy ily pookie ♡)
 
-<p align="center">You don’t respect boundaries or personal space: Can't respect these simple things, expect to get ignored/blocked.
+<p align="center">You don’t respect boundaries or personal space: Can't respect these simple things? Expect to get ignored/blocked.
 
 <p align="center">You're a proshipper: Do I even need to explain this one? Don't even bother trying to excuse it with the "Fiction doesn't affect reality" argument, because it very much does affect reality.
 
