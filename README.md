@@ -42,13 +42,11 @@
 
 <p align="center">You don’t respect boundaries or personal space: Can't respect these simple things? Expect to get ignored/blocked.
 
-<p align="center">You're a proshipper: Do I even need to explain this one? Don't even bother trying to excuse it with the "Fiction doesn't affect reality" argument, because it very much does affect reality.
+<p align="center">You're a proshipper: I don't even want to see people try to excuse it with the "Fiction doesn't affect reality" bs.
 
-<p align="center">You watch g0r3 content: Genuinely what is wrong with people who watch this stuff, anyone who finds enjoyment in these types of videos needs to get off the internet indefinitely.
+<p align="center">You watch g0r3 content: Anyone who finds enjoyment in these types of videos needs to get off the internet indefinitely.
 
 <p align="center">You spread or try to force religious/political beliefs on others: I play this game to escape the harsh and corrupt reality, the last thing I or anyone else needs to see or read is that stuff.
-
-<p align="center">You're a troll, griefer, or you purposely cause trouble for the fun of it: Same category as being rude/disrespectful, but my point still stands.
 
 <p align="center">You bully/harass others just because of a ship they like that isn't even problematic: Looking at all of you reading this now, don't be like that.
 
