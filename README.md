@@ -24,6 +24,8 @@
 
 <p align="center">☆ I love showcasing my cosplays, so if you’d like to take inspiration from something I’ve made, please just ask first! As long as you’re not copying the entire cosplay, I don’t mind people taking a little inspiration. All I ask is that you don't screenshot, record, or upload my cosplays elsewhere. All of my cosplays will have either my Patreon or GitHub linked to them, so please know that if there IS someone using my cosplays, they aren't me. ☆
 
+<p align="center">NOTE: Any cosplay I am using that has the "🎁" emoji in its name was GIFTED TO ME, I did NOT make those cosplays. Huge thank you to my friends who made them for me!! ♡
+
 ------------------------------------------------------------------------------------------------------------------
 
 <p align="center">EXTREMELY IMPORTANT NOTE:
