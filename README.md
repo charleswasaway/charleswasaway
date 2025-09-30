@@ -34,9 +34,9 @@
 
 <p align="center">You’re rude or disrespectful: COMMON SENSE.
 
-<p align="center">You’re super immature: I don’t have time for unnecessary drama, it's not my problem. Go whine about it elsewhere.
-
 <p align="center">You’re racist, homophobic, transphobic, or any kind of bigot: COMMON SENSE.
+
+<p align="center">You’re super immature: I don’t have time for unnecessary drama, it's not my problem.
 
 <p align="center">You’re flirty or make people uncomfortable: ANYONE found flirting w/me will be blocked. (Unless it's Stancy ily pookie ♡)
 
