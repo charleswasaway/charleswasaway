@@ -42,9 +42,9 @@
 
 <p align="center">You don’t respect boundaries or personal space.
 
-<p align="center">You spread or try to force religious/political beliefs on others (I play this game to escape the harsh reality, the last thing I or anyone else needs to see or read is that stuff)
+<p align="center">You spread or try to force religious/political beliefs on others: I play this game to escape the harsh reality, the last thing I or anyone else needs to see or read is that stuff.
 
-<p align="center">You're a troll, griefer, or you purposely cause trouble for the fun of it (Same category as being rude/disrespectful, but my point still stands) 
+<p align="center">You're a troll, griefer, or you purposely cause trouble for the fun of it: Same category as being rude/disrespectful, but my point still stands.
 
 <p align="center">You bully/harass others just because of a ship they like that isn't even problematic.
 
