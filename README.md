@@ -46,7 +46,7 @@
 
 <p align="center">You watch g0r3 content: Anyone who finds enjoyment in these types of videos needs to get off the internet indefinitely.
 
-<p align="center">You spread or try to force religious/political beliefs on others: I play this game to escape the harsh and corrupt reality, the last thing I or anyone else needs to see or read is that stuff.
+<p align="center">You spread or try to force religious/political beliefs on others: I play this game to escape our harsh and corrupt reality, the last thing I or anyone else needs to see or read is that stuff.
 
 <p align="center">You bully/harass others just because of a ship they like that isn't even problematic: Looking at all of you reading this now, don't be like that.
 
