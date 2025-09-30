@@ -38,7 +38,7 @@
 
 <p align="center">You’re racist, homophobic, transphobic, or any kind of bigot: COMMON SENSE.
 
-<p align="center">You’re flirty or make people uncomfortable: I am an adult, anyone, and I mean ANYONE found flirting w/me will be blocked. (Unless it's you Stancy ily pookie ♡)
+<p align="center">You’re flirty or make people uncomfortable: ANYONE found flirting w/me will be blocked. (Unless it's Stancy ily pookie ♡)
 
 <p align="center">You don’t respect boundaries or personal space: Can't respect these simple things, expect to get ignored/blocked.
 
