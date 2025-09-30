@@ -12,7 +12,7 @@
 
 <p align="center">Stancy/Conquest I love you so much darling, thank you for letting me into your heart ♡
 
-<p align="center">☆ C+H freely unless said otherwise ☆
+<p align="center">☆ C+H freely unless said otherwise. ☆
 
 <p align="center">☆ Please don't hesitate to interact w/me whenever I don't have DNIUID/DNIUF in my name, I am always interested in meeting new people!! Just don't be weird. ☆ 
 
