@@ -52,7 +52,7 @@
 
 <p align="center">You bully/harass others just because of a ship they like that isn't even problematic.
 
-<p align="center">You like TCOAAL: The story is digusting, & most of the fans are downright unhinged.
+<p align="center">You like TCOAAL: The story is disgusting, & most of the fans are downright unhinged.
 
 <p align="center">You actively support or play Dandy’s World despite being aware of the developer drama. You play it, you support the creator, simple as that, you cannot do one without the other.
 
