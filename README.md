@@ -10,7 +10,7 @@
 
 <p align="center">08/27/2025 💓
 
-<p align="center">Stancy/Conquest I love you so much darling, thank you for letting me into your heart. ♡
+<p align="center">Stancy I love you so much darling, thank you for letting me into your heart. ♡
 
 <p align="center">☆ C+H freely unless said otherwise. ☆
 
