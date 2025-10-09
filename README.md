@@ -47,7 +47,7 @@
 
 <p align="center">You actively support or play Dandy’s World despite being aware of the developer drama. You play it, you support the creator, simple as that, you cannot do one without the other.
 
-<p align="center">(My StrawPage does not have the last few things listed due to me not feeling like rearranging everything, so I just put them all here).
+<p align="center">(My StrawPage does not have the last few things listed due to me not feeling like rearranging everything, so I just put them all here. Be sure to check that as well as my Pronouns Page if you'd like to learn more about me)
 
 <p align="center">IF SOMETHING ON MY DNI LIST UPSETS YOU, (WHICH IT SHOULDN'T) PLEASE JUST HIDE OR BLOCK ME, I AM NOT IN THE MOOD TO ARGUE WITH ANYONE. THANK YOU!! 
 
@@ -57,15 +57,11 @@
 
 <p align="center">I love showcasing my cosplays, so if you’d like to take inspiration from something I’ve made, please just ask first! As long as you’re not copying the entire cosplay, I don’t mind people taking a little inspiration. All I ask is that you don't screenshot, record, or upload my cosplays elsewhere. All of my cosplays will have either my Patreon or GitHub linked to them, so please know that if there IS someone using my cosplays, they aren't me. ☆
 
-<p align="center">You can learn more about me by checking out my Pronouns Page & StrawPage! (Be sure to sign my StrawPage before you leave!! I showcase all the gimmicks I receive on there)
-
 <p align="center">Any cosplay I am using that has the "🎁" emoji in its name was GIFTED TO ME, I did NOT make those cosplays. Huge thank you to the friends who made them for me!! ♡
 
 ------------------------------------------------------------------------------------------------------------------
 
 <p align="center"><img width="631" height="659" alt="image" src="https://github.com/user-attachments/assets/b8d8647b-f262-483a-8899-54977ece04ec" />
-
-
 
 <p align="center">(Stary is the best South Park ship ever btw (if you disagree you're wrong/j); Art was drawn by my best friend who also drew my profile picture, love that dude/p @2x2equalsu )
 
