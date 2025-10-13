@@ -67,7 +67,7 @@
 
 <p align="center">Just any other basic DNI criteria, you get the idea. 
 
-<p align="center">(My StrawPage does not have most of the things listed due to me not feeling like rearranging everything, so I just put them all here. Be sure to check that as well as my Pronouns Page if you'd like to learn more about me)
+<p align="center">(My StrawPage does not have most of the things listed due to me not feeling like rearranging everything, so I just put them all here. Be sure to check that as well as my Pronouns Page, you'll learn MUCH more about me on those)
 
 <p align="center">IF SOMETHING ON MY DNI LIST UPSETS YOU, (WHICH IT SHOULDN'T) PLEASE JUST HIDE OR BLOCK ME, I AM NOT IN THE MOOD TO ARGUE WITH ANYONE. THANK YOU!! 
 
