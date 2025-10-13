@@ -79,6 +79,8 @@
 
 <p align="center">Any cosplay I am using that has the "🎁" emoji in its name was GIFTED TO ME, I did NOT make those cosplays. Huge thank you to the friends who made them for me!! ♡
 
+<p align="center">Craig blinkie was made by @junabuggy on Tumblr!
+
 ------------------------------------------------------------------------------------------------------------------
 
 <p align="center"><img width="631" height="659" alt="image" src="https://github.com/user-attachments/assets/b8d8647b-f262-483a-8899-54977ece04ec" />
