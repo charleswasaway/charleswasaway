@@ -57,7 +57,7 @@
 
 <p align="center">You watch g0r3 content: Anyone who finds enjoyment in these types of videos needs to get off the internet indefinitely.
 
-<p align="center">You spread or try to force religious/political beliefs on others: Tthe last thing I or anyone else needs to see or read is that stuff.
+<p align="center">You spread or try to force religious/political beliefs on others: The last thing I or anyone else needs to see or read is that stuff.
 
 <p align="center">You bully/harass others just because of a ship they like that isn't even problematic.
 
