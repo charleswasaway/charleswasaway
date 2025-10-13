@@ -29,7 +29,7 @@
 ------------------------------------------------------------------------------------------------------------------
 
 <p align="center">
-  <img src="https://media.tenor.com/uXk3AJQxaOUAAAAd/south-park-flipping-off.gif" alt="South Park flipping off" />
+  <img src="https://media.tenor.com/_c6IWfUT08sAAAAd/craig-craig-tucker.gif" alt="Craig Tucker GIF" />
 </p>
 
 
