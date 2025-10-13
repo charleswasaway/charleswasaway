@@ -43,21 +43,21 @@
   
 <p align="center">DNI If:
 
-<p align="center">You’re rude or disrespectful.
+<p align="center">You’re extremely rude, immature or disrespectful. 
 
 <p align="center">You’re racist, homophobic, transphobic, or any kind of bigot.
 
-<p align="center">You’re super immature: I don’t have time for unnecessary drama, it's not my problem.
+<p align="center">You enjoy starting arguments: I don’t have time for unnecessary drama, it's not my problem.
 
 <p align="center">You’re flirty or make people uncomfortable: ANYONE found flirting w/me will be blocked. (Unless it's Stancy ily pookie ♡)
 
-<p align="center">You don’t respect boundaries or personal space: Can't respect these simple things? Expect to get ignored/blocked.
+<p align="center">You don’t respect boundaries or personal space.
 
-<p align="center">You're a pr0sh1pp3r: I don't even want to see people try to excuse it with the "fiction doesn't affect reality" bs.
+<p align="center">You're a pr0sh1pp3r: I don't even want to see people try to excuse it with the "fiction doesn't affect reality" bs. And if you do, just block me because I am not going to ever want to bother with you.
 
 <p align="center">You watch g0r3 content: Anyone who finds enjoyment in these types of videos needs to get off the internet indefinitely.
 
-<p align="center">You spread or try to force religious/political beliefs on others: I play this game to escape our harsh and corrupt reality, the last thing I or anyone else needs to see or read is that stuff.
+<p align="center">You spread or try to force religious/political beliefs on others: Tthe last thing I or anyone else needs to see or read is that stuff.
 
 <p align="center">You bully/harass others just because of a ship they like that isn't even problematic.
 
