@@ -47,7 +47,7 @@
 
 <p align="center">You’re racist, homophobic, transphobic, or any kind of bigot.
 
-<p align="center">You enjoy starting arguments: I don’t have time for unnecessary drama, it's not my problem.
+<p align="center">You enjoy starting arguments: I don’t have time for any unnecessary drama, it's not my problem. Take it somewhere else.
 
 <p align="center">You’re flirty or make people uncomfortable: ANYONE found flirting w/me will be blocked. (Unless it's Stancy ily pookie ♡)
 
