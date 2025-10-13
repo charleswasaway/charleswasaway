@@ -1,3 +1,8 @@
+<p align="center">
+  <img src="https://adriansblinkiecollection.neocities.org/e111.gif" alt="Animated blinkie" />
+</p>
+
+
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=charleswasaway&color=blue"> </p>
 
 <p align="center">
@@ -24,6 +29,10 @@
 ------------------------------------------------------------------------------------------------------------------
 
 <p align="center"><img width="83" height="128" alt="craig" src="https://github.com/user-attachments/assets/5221b6e3-98ef-4a51-9dc5-4b5fe5f4c939" />
+
+<p align="center">
+  <img src="https://64.media.tumblr.com/b5c1e75e96805d6d1545e0f4f8dcb09d/5a4e39f4261065ad-e3/s640x960/b81ab217bc1bd0b98f7ec7bcc7d2863f05c8b85c.gif" alt="Animated GIF from Tumblr" />
+</p>
 
 <p align="center">BEFORE YOU INTERACT:
 
