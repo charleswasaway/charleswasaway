@@ -37,7 +37,7 @@
   <img src="https://64.media.tumblr.com/b5c1e75e96805d6d1545e0f4f8dcb09d/5a4e39f4261065ad-e3/s640x960/b81ab217bc1bd0b98f7ec7bcc7d2863f05c8b85c.gif" alt="Animated GIF from Tumblr" />
 </p>
 
-<p align="center">BEFORE YOU INTERACT:
+<p align="center">PLEASE READ:
 
 <p align="center">If you’re under 16, don’t interact with me at ALL. If you’re 16–17, it’s fine if you do, but only with extreme caution, absolutely NO flirting or anything weird whatsoever. I’m honestly pretty iffy about interacting with minors in general, but since I mostly stick to the safe server, it’s inevitable. You’re welcome to see me as more of an older sibling or parental figure, but nothing beyond that. And just to be clear, if you’re under 13, you shouldn’t even be on the internet to begin with.
   
