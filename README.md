@@ -104,7 +104,7 @@
 <p align="center"><img width="631" height="659" alt="image" src="https://github.com/user-attachments/assets/b8d8647b-f262-483a-8899-54977ece04ec" />
 
 
-<p align="center">(Stary is the best South Park ship ever btw (if you disagree you're wrong/j); Art was drawn by my best friend, love that dude/p @2x2equalsu )
+<p align="center">(Stary is the best South Park ship ever btw (if you disagree you're wrong/j); Art was drawn by my best friend, love that dude/p @2x2equalsu)
 
 ------------------------------------------------------------------------------------------------------------------
 
