@@ -16,20 +16,17 @@
   </a>
 </p>
 
-<p align="center">
-  <img src="https://adriansblinkiecollection.neocities.org/dividers/vine37.gif" alt="Divider GIF" />
-</p>
+<p align="center">₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊
 
-<p align="center">08/27/2025 💓
+<p align="center">
+  <img src="https://blinkies.cafe/b/blinkiesCafe-iE.gif" alt="Blinkies Cafe GIF" />
+</p>
 
 <p align="center">Stancy I love you so much darling, thank you for letting me into your heart. ♡
 
 <p align="center"><img width="384" height="335" alt="Screenshot 2025-09-30 001453" src="https://github.com/user-attachments/assets/c0f39e59-54cb-4c17-a679-3ffe1ed75d3b" />
 
-<p align="center">
-  <img src="https://adriansblinkiecollection.neocities.org/dividers/vine37.gif" alt="Divider GIF" />
-</p>
-
+<p align="center">₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊
 
 ------------------------------------------------------------------------------------------------------------------
 <p align="center">
@@ -109,7 +106,7 @@
 <p align="center">(Me & The Gang, We're Such Dorks)
 
 <p align="center">
-  <img src="https://adriansblinkiecollection.neocities.org/e52.gif" alt="Animated GIF" />
+  <img src="https://blinkies.cafe/b/display/0112-peep.gif" alt="Peep blinkie" />
 </p>
 
 ------------------------------------------------------------------------------------------------------------------
