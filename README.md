@@ -9,10 +9,6 @@
   <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/ec9048d5-1fd4-42f1-88ff-2f628e8b4464/d8d5wyr-34b7e897-62e2-4553-8080-877abef4d284.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2VjOTA0OGQ1LTFmZDQtNDJmMS04OGZmLTJmNjI4ZThiNDQ2NFwvZDhkNXd5ci0zNGI3ZTg5Ny02MmUyLTQ1NTMtODA4MC04NzdhYmVmNGQyODQuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.mcfTmjc0a3NsqbVaO1l-UtfDUIDbIaow4LTbpKL4kYg" alt="Animated GIF" />
 </p>
 
-<p align="center">
-  <img src="https://adriansblinkiecollection.neocities.org/v34.gif" alt="Animated GIF" />
-</p>
-
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
@@ -84,6 +80,10 @@
 <p align="center">IF SOMETHING ON MY DNI LIST UPSETS YOU, (WHICH IT SHOULDN'T) PLEASE JUST HIDE OR BLOCK ME, I AM NOT IN THE MOOD TO ARGUE WITH ANYONE. THANK YOU!! 
 
 ------------------------------------------------------------------------------------------------------------------
+
+<p align="center">
+  <img src="https://adriansblinkiecollection.neocities.org/v6.gif" alt="Animated GIF" />
+</p>
 
 <p align="center">MISCELLANEOUS NOTES:
 
