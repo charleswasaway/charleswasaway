@@ -22,7 +22,7 @@
   <img src="https://blinkies.cafe/b/blinkiesCafe-iE.gif" alt="Blinkies Cafe GIF" />
 </p>
 
-<p align="center">Stancy I love you so much darling, thank you for letting me into your heart. ♡
+<p align="center">Stancy, I love you so much darling, thank you for letting me into your heart. ♡
 
 <p align="center"><img width="384" height="335" alt="Screenshot 2025-09-30 001453" src="https://github.com/user-attachments/assets/c0f39e59-54cb-4c17-a679-3ffe1ed75d3b" />
 
