@@ -9,13 +9,19 @@
   <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/ec9048d5-1fd4-42f1-88ff-2f628e8b4464/d8d5wyr-34b7e897-62e2-4553-8080-877abef4d284.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2VjOTA0OGQ1LTFmZDQtNDJmMS04OGZmLTJmNjI4ZThiNDQ2NFwvZDhkNXd5ci0zNGI3ZTg5Ny02MmUyLTQ1NTMtODA4MC04NzdhYmVmNGQyODQuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.mcfTmjc0a3NsqbVaO1l-UtfDUIDbIaow4LTbpKL4kYg" alt="Animated GIF" />
 </p>
 
-<p align="center">(Deal with it 😎 💙❤️)
+<p align="center">
+  <img src="https://adriansblinkiecollection.neocities.org/v34.gif" alt="Animated GIF" />
+</p>
 
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=oqhfu5vc1lyvi4oew35ue4ddw&cover_image=true&theme=default&show_offline=true&background_color=1d065b&interchange=false&bar_color=bebec6&bar_color_cover=false" />
   </a>
+</p>
+
+<p align="center">
+  <img src="https://adriansblinkiecollection.neocities.org/dividers/vine37.gif" alt="Divider GIF" />
 </p>
 
 <p align="center">08/27/2025 💓
@@ -26,7 +32,18 @@
   <img src="https://media.tenor.com/LiGTbtBFUdEAAAAi/peach-and-goma-hugging.gif" alt="Peach and Goma hugging" />
 </p>
 
+
+<p align="center"><img width="384" height="335" alt="Screenshot 2025-09-30 001453" src="https://github.com/user-attachments/assets/c0f39e59-54cb-4c17-a679-3ffe1ed75d3b" />
+
+<p align="center">
+  <img src="https://adriansblinkiecollection.neocities.org/dividers/vine37.gif" alt="Divider GIF" />
+</p>
+
+
 ------------------------------------------------------------------------------------------------------------------
+<p align="center">
+  <img src="https://adriansblinkiecollection.neocities.org/x22.gif" alt="Animated GIF" />
+</p>
 
 <p align="center">
   <img src="https://media.tenor.com/_c6IWfUT08sAAAAd/craig-craig-tucker.gif" alt="Craig Tucker GIF" />
@@ -83,9 +100,14 @@
 
 <p align="center">Craig blinkie was made by @junabuggy on Tumblr!
 
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/a8d7d628-09d1-4a84-bb57-a50aa9775e62" alt="45050ba7_original" />
+</p>
+
 ------------------------------------------------------------------------------------------------------------------
 
 <p align="center"><img width="631" height="659" alt="image" src="https://github.com/user-attachments/assets/b8d8647b-f262-483a-8899-54977ece04ec" />
+
 
 <p align="center">(Stary is the best South Park ship ever btw (if you disagree you're wrong/j); Art was drawn by my best friend, love that dude/p @2x2equalsu )
 
@@ -94,5 +116,9 @@
 <p align="center"> <img width="376" height="229" alt="Screenshot 2025-08-06 225744" src="https://github.com/user-attachments/assets/148967e2-4db2-42e8-9cf8-ba2f8072b4f3" />
 
 <p align="center">(Me & The Gang, We're Such Dorks)
+
+<p align="center">
+  <img src="https://adriansblinkiecollection.neocities.org/e52.gif" alt="Animated GIF" />
+</p>
 
 ------------------------------------------------------------------------------------------------------------------
