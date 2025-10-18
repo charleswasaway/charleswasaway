@@ -18,9 +18,7 @@
 
 <p align="center">₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊
 
-<p align="center">
-  <img src="https://blinkies.cafe/b/blinkiesCafe-iE.gif" alt="Blinkies Cafe GIF" />
-</p>
+<p align="center">08/27/2025 ♡♡
 
 <p align="center">Stancy, I love you so much darling, thank you for letting me into your heart. ♡
 
