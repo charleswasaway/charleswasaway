@@ -94,6 +94,9 @@
 
 <p align="center"><img width="1280" height="1280" alt="Untitled172_20251020043309" src="https://github.com/user-attachments/assets/aac63d52-5271-4b64-921b-a31c993cdabf" />
 
+<p align="center">"Would you guys still be my friend if I were a worm/rock?"
+
+<p align="center">Danny: "Bet"
 
 <p align="center">(Thank you for this art Danny, it's good to know my friends would still love me if I were a worm or a rock)
   
@@ -102,7 +105,7 @@
 <p align="center"><img width="1280" height="1280" alt="Untitled172_20251020172504" src="https://github.com/user-attachments/assets/2405d88f-8bcc-4819-a16b-6fcfdff72a08" />
 
 
-<p align="center">“Bees don’t waste their time explaining to flies that honey is better than shit.” -Me and the whole squad, FUCK THOSE STUPID FLIES 
+<p align="center">Me & the gang on our way to pollenate flowers 
 
 <p align="center">(Thank you for this art Danny, you better beelieve this is the best art I've ever seen)
   
