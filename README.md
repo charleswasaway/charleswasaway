@@ -92,19 +92,18 @@
   
 ------------------------------------------------------------------------------------------------------------------
 
-<p align="center"><img width="631" height="659" alt="image" src="https://github.com/user-attachments/assets/b8d8647b-f262-483a-8899-54977ece04ec" />
+<p align="center"><img width="1280" height="1280" alt="Untitled172_20251020043309" src="https://github.com/user-attachments/assets/aac63d52-5271-4b64-921b-a31c993cdabf" />
 
 
-<p align="center">(Stary is the best South Park ship ever btw (if you disagree you're wrong/j); Art was drawn by my best friend, love that dude/p @2x2equalsu)
-
+<p align="center">(Thank you for this art Danny, it's good to know my friends would still love me if I were a worm or a rock)
+  
 ------------------------------------------------------------------------------------------------------------------
 
-<p align="center"> <img width="376" height="229" alt="Screenshot 2025-08-06 225744" src="https://github.com/user-attachments/assets/148967e2-4db2-42e8-9cf8-ba2f8072b4f3" />
+<p align="center"><img width="1280" height="1280" alt="Untitled172_20251020172504" src="https://github.com/user-attachments/assets/2405d88f-8bcc-4819-a16b-6fcfdff72a08" />
 
-<p align="center">(Me & The Gang, We're Such Dorks)
 
-<p align="center">
-  <img src="https://blinkies.cafe/b/display/0112-peep.gif" alt="Peep blinkie" />
-</p>
+<p align="center">“Bees don’t waste their time explaining to flies that honey is better than shit.” -Me and the whole squad, FUCK THOSE STUPID FLIES 
 
+<p align="center">(Thank you for this art Danny, you better beelieve this is the best art I've ever seen)
+  
 ------------------------------------------------------------------------------------------------------------------
