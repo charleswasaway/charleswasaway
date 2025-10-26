@@ -52,7 +52,7 @@
 
 <p align="center">You enjoy starting arguments: I don’t have time for any unnecessary drama, it's not my problem. Take it somewhere else.
 
-<p align="center">You’re flirty or make people uncomfortable: ANYONE found flirting w/me will be blocked. (Unless it's Stancy ily pookie ♡)
+<p align="center">You’re flirty or make others uncomfortable: ANYONE found flirting w/me will be blocked. (Unless it's Stancy ily pookie ♡)
 
 <p align="center">You don’t respect boundaries or personal space.
 
@@ -60,7 +60,7 @@
 
 <p align="center">You watch g0r3 content: Anyone who finds enjoyment in these types of videos needs to get off the internet indefinitely.
 
-<p align="center">You spread or try to force religious/political beliefs on others: The last thing I or anyone else needs to see or read is that stuff.
+<p align="center">You spread or try to force religious/political beliefs on others.
 
 <p align="center">You bully/harass others just because of a ship they like that isn't even problematic.
 
