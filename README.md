@@ -16,16 +16,6 @@
   </a>
 </p>
 
-<p align="center">₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊
-
-<p align="center">♡ 08/27/2025 ♡
-
-<p align="center">Stancy, I love you so much darling, thank you for letting me into your heart. ♡
-
-<p align="center"><img width="384" height="335" alt="Screenshot 2025-09-30 001453" src="https://github.com/user-attachments/assets/c0f39e59-54cb-4c17-a679-3ffe1ed75d3b" />
-
-<p align="center">₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊
-
 ------------------------------------------------------------------------------------------------------------------
 <p align="center">
   <img src="https://adriansblinkiecollection.neocities.org/x22.gif" alt="Animated GIF" />
@@ -52,7 +42,7 @@
 
 <p align="center">You enjoy starting arguments: I don’t have time for any unnecessary drama, it's not my problem. Take it somewhere else.
 
-<p align="center">You’re flirty or make others uncomfortable: ANYONE found flirting w/me will be blocked. (Unless it's Stancy ily pookie ♡)
+<p align="center">You’re flirty or make others uncomfortable: ANYONE found flirting w/me will be blocked.
 
 <p align="center">You don’t respect boundaries or personal space.
 
