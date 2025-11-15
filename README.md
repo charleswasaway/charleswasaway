@@ -46,9 +46,9 @@
 
 <p align="center">You don’t respect boundaries or personal space.
 
-<p align="center">You're a pr0sh1pp3r: I don't even want to see people try to excuse it with the "fiction doesn't affect reality" bs. And if you do, just block me because I am not going to ever want to bother with you.
+<p align="center">You're a pr0sh1pp3r: Self-explanatory, & if you believe fiction doesn't affect reality, because it does. 
 
-<p align="center">You watch g0r3 content: Anyone who finds enjoyment in these types of videos needs to get off the internet indefinitely.
+<p align="center">You watch g0r3 content: You're not quirky for finding enjoyment in these types of videos. 
 
 <p align="center">You spread or try to force religious/political beliefs on others.
 
