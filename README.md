@@ -67,7 +67,7 @@
 ------------------------------------------------------------------------------------------------------------------
 
 <p align="center">
-  <img src="https://adriansblinkiecollection.neocities.org/v6.gif" alt="Animated GIF" />
+  <img src="https://media.tenor.com/54L8De4BcmkAAAAo/n-plush-serial-designation-n.png" alt="N plush" />
 </p>
 
 <p align="center">MISCELLANEOUS NOTES:
