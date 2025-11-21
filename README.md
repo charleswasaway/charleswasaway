@@ -5,11 +5,6 @@
 
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=charleswasaway&color=blue"> </p>
 
-<p align="center"><img width="104" height="56" alt="tumblr_f92a2e2efa5ebf51fadb66e9f8ea68b6_fb1de170_250" src="https://github.com/user-attachments/assets/866df7a9-c339-40cb-acdc-dc5b0978d64f" />
-
-</p>
-
-
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=oqhfu5vc1lyvi4oew35ue4ddw&cover_image=true&theme=default&show_offline=true&background_color=1d065b&interchange=false&bar_color=bebec6&bar_color_cover=false" />
