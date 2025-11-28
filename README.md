@@ -88,12 +88,3 @@
 <p align="center">(Thank you for this art Danny, it's good to know my friends would still love me if I were a worm or a rock)
   
 ------------------------------------------------------------------------------------------------------------------
-
-<p align="center"><img width="1280" height="1280" alt="Untitled172_20251020172504" src="https://github.com/user-attachments/assets/2405d88f-8bcc-4819-a16b-6fcfdff72a08" />
-
-
-<p align="center">Me & the gang on our way to pollenate flowers 
-
-<p align="center">(Thank you for this art Danny, you better beelieve this is the best art I've ever seen)
-  
-------------------------------------------------------------------------------------------------------------------
