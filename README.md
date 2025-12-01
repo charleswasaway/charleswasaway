@@ -27,7 +27,7 @@
 
 <p align="center">PLEASE READ:
 
-<p align="center">Anyone under 18, DNI. I’m not comfortable interacting with minors at all. It's nothing personal, I just prefer to keep my online spaces strictly 18+. If you’re under 18, please don’t message, follow, or engage with me. If you're following me on GitHub that's fine as long as you don't try to interact with me. I changed it because I realized my old boundaries were too loose and left a lot of room for misunderstanding. It’s just easier, safer, and way less stressful to have a firm “18+ only” rule instead of trying to manage different age groups and exceptions. It’s not aimed at anyone personally, I just want my space to stay comfortable and avoid any situations that could get weird or be taken the wrong way.
+<p align="center">Anyone under 18, DNI. I’m not comfortable interacting with minors at all. It's nothing personal, I just prefer to keep my online spaces strictly 18+. If you’re under 18, please don’t message, follow, or engage with me. If you're following me on GitHub that's fine as long as you don't try to interact with me (Same goes if you want to C+H). I changed it because I realized my old boundaries were too loose and left a lot of room for misunderstanding. It’s just easier, safer, and way less stressful to have a firm “18+ only” rule instead of trying to manage different age groups and exceptions. It’s not aimed at anyone personally, I just want my space to stay comfortable and avoid any situations that could get weird or be taken the wrong way.
   
 <p align="center">DNI If:
 
