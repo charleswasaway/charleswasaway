@@ -71,8 +71,6 @@
 
 <p align="center">If you want my Discord, send me a whisper! You MUST be on my friends list, I don't add strangers. 
 
-<p align="center">I sometimes play VRChat while I'm on PT, which means I'll be AFK most of the time and most likely won't respond to any messages I get until very late. 
-
 <p align="center">I love showcasing my cosplays, so if you’d like to take inspiration from something I’ve made, please just ask first! As long as you’re not copying the entire cosplay, I don’t mind people taking a little inspiration. All I ask is that you don't screenshot, record, or upload my cosplays elsewhere. All of my cosplays will have either my Patreon or GitHub linked to them, so please know that if there IS someone using my cosplays, they aren't me.
 
 <p align="center">Any cosplay I am using that has the "🎁" emoji in its name was GIFTED TO ME, I did NOT make those cosplays. Huge thank you to the friends who made them for me!! ♡
