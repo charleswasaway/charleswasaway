@@ -5,7 +5,7 @@
 
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=charleswasaway&color=blue"> </p>
 
-<p align="center">"I am at my happiest when I am around you."
+<p align="center">"I am at my happiest when I am with you."
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
