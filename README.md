@@ -33,41 +33,24 @@
 
 <p align="center">And before people say, "You're in the Safe Server, minors are going to be everywhere so just go to the 18+ Server," know that the reason I am mainly in the Safe Server to begin with is because all of the adult friends I've met reside in the Safe Server and prefer it there because of the inappropriate topics that people discuss in the 18+ Server.
   
-<p align="center">DNI If:
-
-<p align="center">You’re extremely rude, immature or disrespectful. 
-
-<p align="center">You’re racist, homophobic, transphobic, or any kind of bigot.
-
-<p align="center">You enjoy starting arguments: I don’t have time for any unnecessary drama, it's not my problem. Take it somewhere else.
-
-<p align="center">You’re flirty or make others uncomfortable: ANYONE found flirting w/me will be blocked.
-
-<p align="center">You don’t respect boundaries or personal space.
-
-<p align="center">You're a pr0sh1pp3r: Self-explanatory, & if you believe fiction doesn't affect reality, because it does. 
-
-<p align="center">You watch g0r3 content: You're not quirky for finding enjoyment in these types of videos. 
-
-<p align="center">You spread or try to force religious/political beliefs on others.
-
-<p align="center">You bully/harass others just because of a ship they like that isn't even problematic.
-
-<p align="center">You like TCOAAL: The story is disgusting, & most of the fans are downright unhinged.
-
-<p align="center">You actively support or play Dandy’s World despite being aware of the developer drama. You play it, you support the creator, simple as that, you cannot do one without the other.
-
-<p align="center">Just any other basic DNI criteria, you get the idea. 
+<p align="center">DNI:
+<p align="center">Rude people (Bullies / harassers)
+<p align="center">Bigots
+<p align="center">Drama instigators
+<p align="center">Flirts/Creeps
+<p align="center">Boundary breakers 
+<p align="center">Proshippers
+<p align="center">Gore enjoyers 
+<p align="center">Pushy believers (religion/politics)
+<p align="center">TCOAAL fans
+<p align="center">Dandy’s World supporters
+<p align="center">Any other basic DNI 
 
 <p align="center">(My StrawPage does not have most of the things listed due to me not feeling like rearranging everything, so I just put them all here. Be sure to check that as well as my Pronouns Page, you'll learn MUCH more about me on those)
 
 <p align="center">IF SOMETHING ON MY DNI LIST UPSETS YOU, (WHICH IT SHOULDN'T) PLEASE JUST HIDE OR BLOCK ME, I AM NOT IN THE MOOD TO ARGUE WITH ANYONE. THANK YOU!! 
 
 ------------------------------------------------------------------------------------------------------------------
-
-<p align="center">
-  <img src="https://media.tenor.com/54L8De4BcmkAAAAo/n-plush-serial-designation-n.png" alt="N plush" />
-</p>
 
 <p align="center">MISCELLANEOUS NOTES:
 
