@@ -33,7 +33,7 @@
 
 <p align="center">And before people say, "You're in the Safe Server, minors are going to be everywhere so just go to the 18+ Server," know that the reason I am mainly in the Safe Server to begin with is because all of the adult friends I've met reside in the Safe Server and prefer it there because of the inappropriate topics that people discuss in the 18+ Server.
   
-<p align="center">DNI:
+<p align="center">Other DNI:
 <p align="center">Rude people (Bullies / harassers)
 <p align="center">Bigots
 <p align="center">Drama instigators
