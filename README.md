@@ -5,8 +5,6 @@
 
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=charleswasaway&color=blue"> </p>
 
-<p align="center">"I am at my happiest when I am with you."
-
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=oqhfu5vc1lyvi4oew35ue4ddw&cover_image=true&theme=default&show_offline=true&background_color=1d065b&interchange=false&bar_color=bebec6&bar_color_cover=false" />
