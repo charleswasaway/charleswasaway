@@ -27,22 +27,24 @@
 
 <p align="center">PLEASE READ:
 
-<p align="center">Anyone under 18, DNI. I’m not comfortable interacting with minors at all. It's nothing personal, I just prefer to keep my online spaces strictly 18+. If you’re under 18, please don’t message or engage with me. If you're following me or want to follow me on GitHub that's fine as long as you don't try to interact with me (Same goes if you want to C+H). I changed it because I realized my old boundaries were too loose and left a lot of room for misunderstanding. It’s just easier, safer, and way less stressful to have a firm “18+ only” rule instead of trying to manage different age groups and exceptions. It’s not aimed at anyone personally, I just want my space to stay comfortable and avoid any situations that could get weird or be taken the wrong way.
+<p align="center">Anyone under 18, please DNI. I’m not comfortable interacting with minors and prefer to keep my online spaces strictly 18+. If you’re under 18, please don’t message or engage with me, following me on GitHub or wanting to C+H is fine, as long as you don’t try to interact with me.</p>
 
-<p align="center">And before people say, "You're in the Safe Server, minors are going to be everywhere so just go to the 18+ Server," know that the reason I am mainly in the Safe Server to begin with is because all of the adult friends I've met reside in the Safe Server and prefer it there because of the inappropriate topics that people discuss in the 18+ Server.
+<p align="center">I changed this because I realized my previous boundaries were too loose and left room for misunderstandings. Having a firm 18+ rule is simply easier, safer, and less stressful for me. This isn’t directed at anyone personally, I just want to keep my spaces comfortable and avoid situations that could be misunderstood.</p>
+
+<p align="center">And before anyone says, “You’re in the Safe Server, minors are going to be everywhere, so just use the 18+ Server,” I mainly stay in the Safe Server because most of my adult friends are there and prefer it due to the inappropriate topics often discussed in the 18+ Server.</p>
+
   
-<p align="center">Other DNI:
-<p align="center">Rude people (Bullies / harassers)
-<p align="center">Bigots
-<p align="center">Drama instigators
-<p align="center">Flirts/Creeps
-<p align="center">Boundary breakers 
-<p align="center">Proshippers
-<p align="center">Gore enjoyers 
-<p align="center">Pushy believers (religion/politics)
-<p align="center">TCOAAL fans
-<p align="center">Dandy’s World supporters
-<p align="center">Any other basic DNI 
+<p align="center">Other DNI:</p>
+<p align="center">Bullies, harassers, or generally disrespectful people</p>
+<p align="center">Bigots/hateful people</p>
+<p align="center">Drama starters/people who seek out conflict</p>
+<p align="center">Flirts, creeps, or people who ignore boundaries</p>
+<p align="center">Proshippers</p>
+<p align="center">Gore enjoyers</p>
+<p align="center">People who push their religious or political beliefs onto others</p>
+<p align="center">TCOAAL fans</p>
+<p align="center">Anyone who falls under the usual/basic DNI criteria</p>
+
 
 <p align="center">(My StrawPage does not have most of the things listed due to me not feeling like rearranging everything, so I just put them all here. Be sure to check that as well as my Pronouns Page, you'll learn MUCH more about me on those)
 
