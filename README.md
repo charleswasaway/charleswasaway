@@ -1,8 +1,4 @@
 <p align="center">
-  <img src="https://64.media.tumblr.com/27c6cf0846f68c2b01c0bc224f3f9efd/7c22e5fc72c98df2-87/s540x810/0d6b2cb772e66ab374f1df1ce5d4e974f6d018f8.gif" alt="Blood GIF" />
-</p>
-
-<p align="center">
   <img src="https://blinkie.world/blinkies/red%20blinkies/Nosey%20Little%20Fucker,%20Aren't%20You_.gif" alt="Nosey Little Fucker, Aren't You? GIF" />
 </p>
 
