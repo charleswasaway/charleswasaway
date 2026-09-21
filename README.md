@@ -5,7 +5,7 @@
 
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=charleswasaway&color=blue"> </p>
 
-<p align="center">IF ANYONE KNOWS ANY GOOD ARTISTS I CAN COMMISSION FOR A DECENT PRICE PLS WHISPER ME!!! THANK YOU. 
+<p align="center">IF ANYONE KNOWS ANY GOOD SOUTH PARK ARTISTS I CAN COMMISSION FOR A DECENT PRICE PLS WHISPER ME!!! THANK YOU. 
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
