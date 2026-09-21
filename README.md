@@ -27,7 +27,7 @@
   <img src="https://64.media.tumblr.com/b5c1e75e96805d6d1545e0f4f8dcb09d/5a4e39f4261065ad-e3/s640x960/b81ab217bc1bd0b98f7ec7bcc7d2863f05c8b85c.gif" alt="Animated GIF from Tumblr" />
 </p>
 
-<p align="center">PLEASE READ:
+<p align="center">PLEASE READ BYI:
 
 <p align="center">Anyone under 18, please DNI. I’m not comfortable interacting with minors and prefer to keep my online spaces strictly 18+. If you’re under 18, please don’t message or engage with me, following me on GitHub or wanting to C+H is fine, as long as you don’t try to talk to me.</p>
 
@@ -49,17 +49,16 @@
 
 <p align="center">(My StrawPage does not have most of the things listed due to me not feeling like rearranging everything, so I just put them all here. Be sure to check that as well as my Pronouns Page, you'll learn MUCH more about me on those)
 
-<p align="center">IF SOMETHING ON MY DNI LIST UPSETS YOU, (WHICH IT SHOULDN'T) PLEASE JUST HIDE OR BLOCK ME, I AM NOT IN THE MOOD TO ARGUE WITH ANYONE. THANK YOU!! 
+<p align="center">IF SOMETHING ON MY DNI LIST UPSETS YOU, (WHICH IT SHOULDN'T) PLEASE JUST HIDE OR BLOCK ME, I AM NOT IN THE MOOD TO ARGUE WITH ANYONE. THANK YOU!!!
 
 ------------------------------------------------------------------------------------------------------------------
 
 <p align="center">MISCELLANEOUS NOTES:
 
-<p align="center">If you want my Discord, send me a whisper! You MUST be on my friends list, I don't add strangers. 
+<p align="center">If you want my Discord, send me a whisper! You MUST be on my PT friends list, I don't add strangers. 
 
-<p align="center">I love showcasing my cosplays, so if you’d like to take inspiration from something I’ve made, please just ask first! As long as you’re not copying the entire cosplay, I don’t mind people taking a little inspiration. All I ask is that you don't screenshot, record, or upload my cosplays elsewhere. All of my cosplays will have either my Patreon or GitHub linked to them, so please know that if there IS someone using my cosplays, they aren't me.
+<p align="center">I love showcasing my cosplays, so if you’d like to take inspiration from something I’ve made, please just ask first! As long as you’re not copying the entire thing, I don’t mind people taking inspiration. All I ask is that you don't screenshot or upload my cosplays elsewhere UNLESS you credit me within the post. All of my cosplays will have either my Patreon or GitHub linked to them, so please know that if there IS someone using my cosplays, they aren't me.
 
 <p align="center">Any cosplay I am using that has the "🎁" emoji in its name was GIFTED TO ME, I did NOT make those cosplays. Huge thank you to the friends who made them for me!! ♡
 
 <p align="center">Craig blinkie was made by @junabuggy on Tumblr!
-  
