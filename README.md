@@ -29,7 +29,7 @@
 
 <p align="center">PLEASE READ:
 
-<p align="center">Anyone under 18, please DNI. I’m not comfortable interacting with minors and prefer to keep my online spaces strictly 18+. If you’re under 18, please don’t message or engage with me, following me on GitHub or wanting to C+H is fine, as long as you don’t try to interact with me.</p>
+<p align="center">Anyone under 18, please DNI. I’m not comfortable interacting with minors and prefer to keep my online spaces strictly 18+. If you’re under 18, please don’t message or engage with me, following me on GitHub or wanting to C+H is fine, as long as you don’t try to talk to me.</p>
 
 <p align="center">I changed this because I realized my previous boundaries were too loose and left room for misunderstandings. Having a firm 18+ rule is simply easier, safer, and less stressful for me. This isn’t directed at anyone personally, I just want to keep my spaces comfortable and avoid situations that could be misunderstood.</p>
 
