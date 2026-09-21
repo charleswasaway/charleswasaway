@@ -2,12 +2,7 @@
   <img src="https://blinkie.world/blinkies/red%20blinkies/Nosey%20Little%20Fucker,%20Aren't%20You_.gif" alt="Nosey Little Fucker, Aren't You? GIF" />
 </p>
 
-
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=charleswasaway&color=grey"> </p>
-
-<p align="center">PLEASE BE MINDFUL OF THIS BEFORE INTERACTING WITH ME, THANK YOU!!! </3
-
-<p align="center"><img width="1200" height="245" alt="image" src="https://github.com/user-attachments/assets/94ce2e22-fd5f-4bee-bcd4-9da8be0ff370" />
 
 <p align="center">
   <img src="https://64.media.tumblr.com/a485965b2ead75bd690407872575885a/301e2479ca8b10ac-1c/s250x400/0911d35ecccd3a17c5b1e3f66e4d1381c3136672.gif" alt="GIF" />
