@@ -1,11 +1,21 @@
 <p align="center">
-  <img src="https://adriansblinkiecollection.neocities.org/e111.gif" alt="Animated blinkie" />
+  <img src="https://64.media.tumblr.com/27c6cf0846f68c2b01c0bc224f3f9efd/7c22e5fc72c98df2-87/s540x810/0d6b2cb772e66ab374f1df1ce5d4e974f6d018f8.gif" alt="Blood GIF" />
+</p>
+
+<p align="center">
+  <img src="https://blinkie.world/blinkies/red%20blinkies/Nosey%20Little%20Fucker,%20Aren't%20You_.gif" alt="Nosey Little Fucker, Aren't You? GIF" />
 </p>
 
 
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=charleswasaway&color=blue"> </p>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=charleswasaway&color=grey"> </p>
 
-<p align="center">IF ANYONE KNOWS ANY GOOD SOUTH PARK ARTISTS I CAN COMMISSION FOR A DECENT PRICE PLS WHISPER ME!!! THANK YOU. 
+<p align="center">PLEASE BE MINDFUL OF THIS BEFORE INTERACTING WITH ME, THANK YOU!!! </3
+
+<p align="center"><img width="1200" height="245" alt="image" src="https://github.com/user-attachments/assets/94ce2e22-fd5f-4bee-bcd4-9da8be0ff370" />
+
+<p align="center">
+  <img src="https://64.media.tumblr.com/a485965b2ead75bd690407872575885a/301e2479ca8b10ac-1c/s250x400/0911d35ecccd3a17c5b1e3f66e4d1381c3136672.gif" alt="GIF" />
+</p>
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
@@ -21,7 +31,6 @@
 <p align="center">
   <img src="https://media.tenor.com/_c6IWfUT08sAAAAd/craig-craig-tucker.gif" alt="Craig Tucker GIF" />
 </p>
-
 
 <p align="center">
   <img src="https://64.media.tumblr.com/b5c1e75e96805d6d1545e0f4f8dcb09d/5a4e39f4261065ad-e3/s640x960/b81ab217bc1bd0b98f7ec7bcc7d2863f05c8b85c.gif" alt="Animated GIF from Tumblr" />
@@ -42,7 +51,6 @@
 <p align="center">Drama starters/people who seek out conflict</p>
 <p align="center">Flirts, creeps, or people who ignore boundaries</p>
 <p align="center">Proshippers</p>
-<p align="center">Gore enjoyers</p>
 <p align="center">People who push their religious or political beliefs onto others</p>
 <p align="center">TCOAAL fans</p>
 <p align="center">Anyone who falls under the usual/basic DNI criteria</p>
@@ -64,14 +72,3 @@
 
 <p align="center">Craig blinkie was made by @junabuggy on Tumblr!
   
-------------------------------------------------------------------------------------------------------------------
-
-<p align="center"><img width="1280" height="1280" alt="Untitled172_20251020043309" src="https://github.com/user-attachments/assets/aac63d52-5271-4b64-921b-a31c993cdabf" />
-
-<p align="center">"Would you guys still be my friend if I were a worm/rock?"
-
-<p align="center">Danny: "Bet"
-
-<p align="center">(Thank you for this art Danny, it's good to know my friends would still love me if I were a worm or a rock)
-  
-------------------------------------------------------------------------------------------------------------------
