@@ -1,64 +1,236 @@
+<!-- ==================== TOP ==================== -->
+
 <p align="center">
-  <img src="https://blinkie.world/blinkies/red%20blinkies/Nosey%20Little%20Fucker,%20Aren't%20You_.gif" alt="Nosey Little Fucker, Aren't You? GIF" />
+  <img src="https://64.media.tumblr.com/6489133feb15fa428b5d6a3b74cf334f/5b5768b53aad21c8-64/s1280x1920/54dbe5ef932bc7d8f78a04210e46daacdef57da8.pnj"
+       width="100%"
+       alt="The Solar System">
 </p>
 
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=charleswasaway&color=grey"> </p>
-
 <p align="center">
-  <img src="https://64.media.tumblr.com/a485965b2ead75bd690407872575885a/301e2479ca8b10ac-1c/s250x400/0911d35ecccd3a17c5b1e3f66e4d1381c3136672.gif" alt="GIF" />
+  <img src="https://blinkie.world/blinkies/red%20blinkies/Nosey%20Little%20Fucker,%20Aren't%20You_.gif">
 </p>
 
 <p align="center">
+  <img src="https://komarev.com/ghpvc/?username=charleswasaway&color=grey">
+</p>
+
+
+<!-- ==================== SPOTIFY ==================== -->
+
+<table align="center">
+<tr>
+
+<td align="center" width="25%">
+  <img src="https://media.discordapp.net/attachments/1405617441362546730/1552791116498206830/pony-town-i_love_you_like_an_alcoholic-dance_move_5-padded-16x.png?ex=6ab6e4eb&is=6ab5936b&hm=2ca74bfd64cab7ba364da4c2a1cf9efa63aef91c40863eb7fa2ae5fc00725a13&=&format=webp&quality=lossless"
+       width="150"
+       alt="Pony Town character">
+</td>
+
+<td align="center" width="50%">
   <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=oqhfu5vc1lyvi4oew35ue4ddw&cover_image=true&theme=default&show_offline=true&background_color=1d065b&interchange=false&bar_color=bebec6&bar_color_cover=false" />
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=oqhfu5vc1lyvi4oew35ue4ddw&cover_image=true&theme=default&show_offline=true&background_color=1d065b&interchange=false&bar_color=bebec6&bar_color_cover=false">
   </a>
-</p>
+</td>
 
-------------------------------------------------------------------------------------------------------------------
+<td align="center" width="25%">
+  <img src="https://media.discordapp.net/attachments/1405617441362546730/1552791117207183360/pony-town-the_three_js_afk___w2i-dance_move_5-padded-toy134-16x.png?ex=6ab6e4eb&is=6ab5936b&hm=df95f35dc288dec74f27a4071a6bad5cbb668791dd93452e713b65fa80139f1d&=&format=webp&quality=lossless"
+       width="150"
+       alt="Pony Town character">
+</td>
+
+</tr>
+</table>
+
+<!-- ==================== BLINKIES ==================== -->
+
 <p align="center">
-  <img src="https://adriansblinkiecollection.neocities.org/x22.gif" alt="Animated GIF" />
+  <img src="https://i.imgur.com/5zRCYzH.gif">
+  <img src="https://i.imgur.com/6PJR6r4.gif">
+  <img src="https://i.imgur.com/Eo8rNg4.gif">
+  <img src="https://i.imgur.com/9eAYwir.gif">
+  <img src="https://i.imgur.com/oXrCMQK.gif">
+  <img src="https://i.imgur.com/wLtD8xZ.gif">
+  <img src="https://i.imgur.com/d6iPcM5.gif">
 </p>
 
 <p align="center">
-  <img src="https://media.tenor.com/_c6IWfUT08sAAAAd/craig-craig-tucker.gif" alt="Craig Tucker GIF" />
+  <img src="https://i.imgur.com/EY59Y6N.gif">
+  <img src="https://i.imgur.com/46pSBuR.gif">
+  <img src="https://i.imgur.com/uvzEFM2.gif">
+  <img src="https://i.imgur.com/flfZXg1.gif">
+  <img src="https://i.imgur.com/qchTl47.gif">
+  <img src="https://i.imgur.com/rn0N4vO.gif">
 </p>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/b5c1e75e96805d6d1545e0f4f8dcb09d/5a4e39f4261065ad-e3/s640x960/b81ab217bc1bd0b98f7ec7bcc7d2863f05c8b85c.gif" alt="Animated GIF from Tumblr" />
+  <img src="https://y2k.neocities.org/stamps/tumblr_inline_p1fyv1nUPi1rv0j40_500j.png">
 </p>
 
-<p align="center">PLEASE READ BYI:
+<p align="center">
+  <img src="https://adriansblinkiecollection.neocities.org/x22.gif">
+</p>
 
-<p align="center">Anyone under 18, please DNI. I’m not comfortable interacting with minors and prefer to keep my online spaces strictly 18+. If you’re under 18, please don’t message or engage with me, following me on GitHub or wanting to C+H is fine, as long as you don’t try to talk to me.</p>
+<p align="center">
+  <img src="https://external-media.spacehey.net/media/s9XWTu4E91Hm7njxEUi2S0OvmsdjEgMVk4NoghQ5EyEc=/https://i.ibb.co/MVP1228/cautionary-tale-08.gif">
+</p>
 
-<p align="center">I changed this because I realized my previous boundaries were too loose and left room for misunderstandings. Having a firm 18+ rule is simply easier, safer, and less stressful for me. This isn’t directed at anyone personally, I just want to keep my spaces comfortable and avoid situations that could be misunderstood.</p>
+<p align="center">
+  <img src="https://external-media.spacehey.net/media/sosy3SNCMmVwFSc4a9yCbcE43WhxpJkIsI-oXzLJxTMQ=/https://64.media.tumblr.com/e0af93c53f31cd442b0283076161c7aa/fc048b9b9f8b2b40-b8/s250x400/70f89dfa21c05391bc6927a84933f0ce7637a8ac.gifv">
+</p>
 
-<p align="center">And before anyone says, “You’re in the Safe Server, minors are going to be everywhere, so just use the 18+ Server,” I mainly stay in the Safe Server because most of my adult friends are there and prefer it due to the inappropriate topics often discussed in the 18+ Server.</p>
-
-  
-<p align="center">Other DNI:</p>
-<p align="center">Bullies, harassers, or generally disrespectful people</p>
-<p align="center">Bigots/hateful people</p>
-<p align="center">Drama starters/people who seek out conflict</p>
-<p align="center">Flirts, creeps, or people who ignore boundaries</p>
-<p align="center">Proshippers</p>
-<p align="center">People who push their religious or political beliefs onto others</p>
-<p align="center">TCOAAL fans</p>
-<p align="center">Anyone who falls under the usual/basic DNI criteria</p>
+<p align="center">
+  <img src="https://64.media.tumblr.com/161b5a68c55e382f86d524758c59dd54/0974fc5688800e42-4d/s640x960/1fe693ba3e76b942fcd4d9f400bbc1305636b1b1.gifv">
+</p>
 
 
-<p align="center">(My StrawPage does not have most of the things listed due to me not feeling like rearranging everything, so I just put them all here. Be sure to check that as well as my Pronouns Page, you'll learn MUCH more about me on those)
+<hr>
 
-<p align="center">IF SOMETHING ON MY DNI LIST UPSETS YOU, (WHICH IT SHOULDN'T) PLEASE JUST HIDE OR BLOCK ME, I AM NOT IN THE MOOD TO ARGUE WITH ANYONE. THANK YOU!!!
 
-------------------------------------------------------------------------------------------------------------------
+<!-- ==================== CRAIG ==================== -->
 
-<p align="center">MISCELLANEOUS NOTES:
+<p align="center">
+  <img src="https://64.media.tumblr.com/a485965b2ead75bd690407872575885a/301e2479ca8b2b40-1c/s250x400/0911d35ecccd3a17c5b1e3f66e4d1381c3136672.gif"
+       width="250"
+       alt="Craig Tucker">
+</p>
 
-<p align="center">If you want my Discord, send me a whisper! You MUST be on my PT friends list, I don't add strangers. 
+<p align="center">
+  <img src="https://media.tenor.com/_c6IWfUT08sAAAAd/craig-craig-tucker.gif"
+       width="280"
+       alt="Craig Tucker">
+</p>
 
-<p align="center">I love showcasing my cosplays, so if you’d like to take inspiration from something I’ve made, please just ask first! As long as you’re not copying the entire thing, I don’t mind people taking inspiration. All I ask is that you don't screenshot or upload my cosplays elsewhere UNLESS you let me know beforehand AND credit me within the post. All of my cosplays will have either my Patreon or GitHub linked to them, so please know that if there IS someone using my cosplays, they aren't me.
+<p align="center">
+  <img src="https://64.media.tumblr.com/b5c1e75e96805d6d1545e0f4f8dcb09d/5a4e39f4261065ad-e3/s640x960/b81ab217bc1bd0b98f7ec7bcc7d2863f05c8b85c.gif"
+       alt="Animated GIF from Tumblr">
+</p>
 
-<p align="center">Any cosplay I am using that has the "🎁" emoji in its name was GIFTED TO ME, I did NOT make those cosplays. Huge thank you to the friends who made them for me!! ♡
 
-<p align="center">Craig blinkie was made by @junabuggy on Tumblr!
+<hr>
+
+
+<!-- ==================== BYI / DNI ==================== -->
+
+<table align="center">
+<tr>
+
+<td align="center" width="20%">
+  <img src="https://media.discordapp.net/attachments/1405617441362546730/1552791068247068834/pony-town-his_knight-___dniuid--dance_move_5-padded-toy206-16x_1.png?ex=6ab6e4e0&is=6ab59360&hm=0d262fb7402a5e21d337f23596d7a8c89a9d4bf839d45be226c01ff6b3b920f4&=&format=webp&quality=lossless"
+       width="150"
+       alt="Pony Town character">
+</td>
+
+<td align="center" width="60%">
+
+<h2>⚠ PLEASE READ BYI ⚠</h2>
+
+<p>
+<b>18+ ONLY</b>
+</p>
+
+<p>
+Anyone under 18, please DNI. I’m not comfortable interacting with minors
+and prefer to keep my online spaces strictly 18+.
+</p>
+
+<p>
+If you’re under 18, please don’t message or engage with me. Following me
+on GitHub or wanting to C+H is fine, as long as you don’t try to talk to me.
+</p>
+
+<p>
+I changed this because I realized my previous boundaries were too loose
+and left room for misunderstandings. Having a firm 18+ rule is simply
+easier, safer, and less stressful for me.
+</p>
+
+<p>
+I mainly stay in the Safe Server because most of my adult friends are there
+and prefer it due to the inappropriate topics often discussed in the 18+
+Server.
+</p>
+
+<h3>🚫 OTHER DNI 🚫</h3>
+
+<p>
+Bullies, harassers, or generally disrespectful people
+<br>
+Bigots / hateful people
+<br>
+Drama starters / people who seek out conflict
+<br>
+Flirts, creeps, or people who ignore boundaries
+<br>
+Proshippers
+<br>
+People who push their religious or political beliefs onto others
+<br>
+TCOAAL fans
+<br>
+Anyone who falls under the usual/basic DNI criteria
+</p>
+
+<p>
+My StrawPage does not have most of the things listed due to me not feeling
+like rearranging everything, so I just put them all here. Be sure to check
+that as well as my Pronouns Page, you'll learn MUCH more about me on those.
+</p>
+
+<p>
+<b>
+IF SOMETHING ON MY DNI LIST UPSETS YOU, PLEASE JUST HIDE OR BLOCK ME.
+I AM NOT IN THE MOOD TO ARGUE WITH ANYONE. THANK YOU!!!
+</b>
+</p>
+
+</td>
+
+<td align="center" width="20%">
+  <img src="https://media.discordapp.net/attachments/1405617441362546730/1552791069706559568/pony-town-the_elven_king-_dniuid--dance_move_5-padded-toy134-16x_1.png?ex=6ab6e4e0&is=6ab59360&hm=517ed86b8ade33223dee3443f877fdc39b6be229e2f9516fdb82afee4ba3d3a1&=&format=webp&quality=lossless"
+       width="150"
+       alt="Pony Town character">
+</td>
+
+</tr>
+</table>
+
+
+<hr>
+
+
+<!-- ==================== MISC ==================== -->
+
+<h2 align="center">✦ MISCELLANEOUS NOTES ✦</h2>
+
+<p align="center">
+If you want my Discord, send me a whisper!
+<br>
+<b>You MUST be on my PT friends list, I don't add strangers.</b>
+</p>
+
+<p align="center">
+I love showcasing my cosplays, so if you’d like to take inspiration from
+something I’ve made, please just ask first! As long as you’re not copying
+the entire thing, I don't mind people taking inspiration.
+</p>
+
+<p align="center">
+Please don't screenshot or upload my cosplays elsewhere UNLESS you let me
+know beforehand AND credit me within the post.
+</p>
+
+<p align="center">
+Any cosplay with the <b>🎁</b> emoji in its name was <b>GIFTED TO ME</b>.
+I did NOT make those cosplays. Huge thank you to the friends who made
+them for me!! ♡
+</p>
+
+<p align="center">
+Craig blinkie was made by @junabuggy on Tumblr!
+</p>
+
+<p align="center">
+  <img src="https://64.media.tumblr.com/6489133feb15fa428b5d6a3b74cf334f/5b5768b53aad21c8-64/s1280x1920/54dbe5ef932bc7d8f78a04210e46daacdef57da8.pnj"
+       width="100%"
+       alt="The Solar System">
+</p>
