@@ -41,6 +41,7 @@
 </tr>
 </table>
 
+
 <!-- ==================== BLINKIES ==================== -->
 
 <p align="center">
@@ -48,37 +49,31 @@
   <img src="https://i.imgur.com/6PJR6r4.gif">
   <img src="https://i.imgur.com/Eo8rNg4.gif">
   <img src="https://i.imgur.com/9eAYwir.gif">
-  <img src="https://i.imgur.com/oXrCMQK.gif">
-  <img src="https://i.imgur.com/wLtD8xZ.gif">
-  <img src="https://i.imgur.com/d6iPcM5.gif">
 </p>
 
 <p align="center">
+  <img src="https://i.imgur.com/oXrCMQK.gif">
+  <img src="https://i.imgur.com/wLtD8xZ.gif">
+  <img src="https://i.imgur.com/d6iPcM5.gif">
   <img src="https://i.imgur.com/EY59Y6N.gif">
+</p>
+
+<p align="center">
   <img src="https://i.imgur.com/46pSBuR.gif">
   <img src="https://i.imgur.com/uvzEFM2.gif">
   <img src="https://i.imgur.com/flfZXg1.gif">
   <img src="https://i.imgur.com/qchTl47.gif">
+</p>
+
+<p align="center">
   <img src="https://i.imgur.com/rn0N4vO.gif">
-</p>
-
-<p align="center">
   <img src="https://y2k.neocities.org/stamps/tumblr_inline_p1fyv1nUPi1rv0j40_500j.png">
-</p>
-
-<p align="center">
   <img src="https://adriansblinkiecollection.neocities.org/x22.gif">
 </p>
 
 <p align="center">
   <img src="https://external-media.spacehey.net/media/s9XWTu4E91Hm7njxEUi2S0OvmsdjEgMVk4NoghQ5EyEc=/https://i.ibb.co/MVP1228/cautionary-tale-08.gif">
-</p>
-
-<p align="center">
   <img src="https://external-media.spacehey.net/media/sosy3SNCMmVwFSc4a9yCbcE43WhxpJkIsI-oXzLJxTMQ=/https://64.media.tumblr.com/e0af93c53f31cd442b0283076161c7aa/fc048b9b9f8b2b40-b8/s250x400/70f89dfa21c05391bc6927a84933f0ce7637a8ac.gifv">
-</p>
-
-<p align="center">
   <img src="https://64.media.tumblr.com/161b5a68c55e382f86d524758c59dd54/0974fc5688800e42-4d/s640x960/1fe693ba3e76b942fcd4d9f400bbc1305636b1b1.gifv">
 </p>
 
@@ -227,10 +222,4 @@ them for me!! ♡
 
 <p align="center">
 Craig blinkie was made by @junabuggy on Tumblr!
-</p>
-
-<p align="center">
-  <img src="https://64.media.tumblr.com/6489133feb15fa428b5d6a3b74cf334f/5b5768b53aad21c8-64/s1280x1920/54dbe5ef932bc7d8f78a04210e46daacdef57da8.pnj"
-       width="100%"
-       alt="The Solar System">
 </p>
