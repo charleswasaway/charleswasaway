@@ -218,6 +218,10 @@ I AM NOT IN THE MOOD TO ARGUE WITH ANYONE. THANK YOU!!!
 </b>
 </p>
 
+<p align="center">
+  <img src="https://i5.glitter-graphics.org/pub/674/674435gqg299c4xs.gif">
+</p>
+
 </td>
 
 <td align="center" width="20%">
