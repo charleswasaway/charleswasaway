@@ -15,13 +15,12 @@
 </p>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/a485965b2ead75bd690407872575885a/301e2479ca8b10ac-1c/s250x400/0911d35ecccd3a17c5b1e3f66e4d1381c3136672.gif">
-</p>
-
-<p align="center">
   <img src="https://adriansblinkiecollection.neocities.org/buttons/4.jpg">
 </p>
 
+<p align="center">
+  <img src="https://64.media.tumblr.com/a485965b2ead75bd690407872575885a/301e2479ca8b10ac-1c/s250x400/0911d35ecccd3a17c5b1e3f66e4d1381c3136672.gif">
+</p>
 
 <!-- ==================== SPOTIFY ==================== -->
 
@@ -29,7 +28,7 @@
 <tr>
 
 <td align="center" width="25%">
-  <img src="https://media.discordapp.net/attachments/1405617441362546730/1552791116498206830/pony-town-i_love_you_like_an_alcoholic-dance_move_5-padded-16x.png?ex=6ab6e4eb&is=6ab5936b&hm=2ca74bfd64cab7ba364da4c2a1cf9efa63aef91c40863eb7fa2ae5fc00725a13&=&format=webp&quality=lossless"
+  <img src="https://media.discordapp.net/attachments/1405617441362546730/1552843460313219093/pony-town-i_love_you_like_an_alcoholic-dance-3-padded-16x.gif?ex=6ab715ab&is=6ab5c42b&hm=07e4f06575bcea1fb94a0f7d6f09567e62c4b97e2802df216d4440250b022416&="
        width="150"
        alt="Pony Town character">
 </td>
@@ -41,7 +40,7 @@
 </td>
 
 <td align="center" width="25%">
-  <img src="https://media.discordapp.net/attachments/1405617441362546730/1552791117207183360/pony-town-the_three_js_afk___w2i-dance_move_5-padded-toy134-16x.png?ex=6ab6e4eb&is=6ab5936b&hm=df95f35dc288dec74f27a4071a6bad5cbb668791dd93452e713b65fa80139f1d&=&format=webp&quality=lossless"
+  <img src="https://media.discordapp.net/attachments/1405617441362546730/1552843461454077992/pony-town-the_three_js_afk___w2i-dance-3-padded-toy134-16x.gif?ex=6ab715ab&is=6ab5c42b&hm=4ba2b02e847f051a0c2c52474ee57f39d29a8fe1ee51fb4e5a42ff200f9b88b1&="
        width="150"
        alt="Pony Town character">
 </td>
@@ -105,6 +104,7 @@
   <img src="https://adriansblinkiecollection.neocities.org/q1.gif">
   <img src="https://blinkie.world/blinkies/purple%20blinkies/1_%20Ragatha%20fan.gif">
 </p>
+
 <p align="center">
   <img src="https://blinkie.world/blinkies/black%20blinkies/TV%20GIRL.gif">
 </p>
@@ -139,6 +139,7 @@
 
 <hr>
 
+<p align="center">ALL BLINKIES USED BELONG TO THEIR RESPECTIVE OWNERS!!! 
 
 <!-- ==================== BYI / DNI ==================== -->
 
@@ -257,5 +258,7 @@ them for me!! ♡
 </p>
 
 <p align="center">
-Craig blinkie was made by @junabuggy on Tumblr!
+  <img src="https://media.discordapp.net/attachments/1405617441362546730/1552845821555507283/pony-town-another_day_another_slay_-dance_move_5-padded-toy365-16x.gif?ex=6ab717de&is=6ab5c65e&hm=2bd48d806b76014cb5b62b49f549f080b81d8e1fb5a59b66fac979d1ebcc80b8&="
+       width="100"
+       alt="Pony Town character">
 </p>
