@@ -168,12 +168,11 @@
 <h2>⚠ PLEASE READ BYI ⚠</h2>
 
 <p>
-Anyone under 18, PLEASEEE DNI! I really don't want to interact or deal w/minors
-and prefer to keep my online spaces strictly 18+
+Anyone under 18, PLEASEEE DNI! I really don't want to form friendships or have ongoing personal interactions with minors, and I prefer to keep my online spaces strictly 18+
 </p>
 
 <p>
-Following me on GitHub, signing my Strawpage/Ata, or wanting to C+H is OKAY! Just as long as you don’t try to actively talk to me.
+Following me on GitHub, signing my Strawpage/Ata, wanting to C+H, or having some light/casual conversation is OKAY! Just please don't try to become friends with me or turn it into an ongoing personal relationship.
 </p>
 
 <p>
