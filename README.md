@@ -165,7 +165,7 @@
 <h2>⚠ PLEASE READ BYI ⚠</h2>
 
 <p>
-Anyone under 18, PLEASEEE DNI. I really don't want to interact or deal w/minors
+Anyone under 18, PLEASEEE DNI! I really don't want to interact or deal w/minors
 and prefer to keep my online spaces strictly 18+
 </p>
 
