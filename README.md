@@ -165,13 +165,12 @@
 <h2>⚠ PLEASE READ BYI ⚠</h2>
 
 <p>
-Anyone under 18, please DNI. I’m not comfortable interacting with minors
+Anyone under 18, PLEASEEE DNI. I really don't want to interact or deal w/minors
 and prefer to keep my online spaces strictly 18+.
 </p>
 
 <p>
-If you’re under 18, please don’t message or engage with me. Following me
-on GitHub or wanting to C+H is fine, as long as you don’t try to talk to me.
+Following me on GitHub, signing my Strawpage/Ata, or wanting to C+H is fine, as long as you don’t try to actively talk to me.
 </p>
 
 <p>
@@ -183,7 +182,7 @@ easier, safer, and less stressful for me.
 <p>
 I mainly stay in the Safe Server because most of my adult friends are there
 and prefer it due to the inappropriate topics often discussed in the 18+
-Server.
+Server. (And because there isn't a South Park area in the 18+ server, can we please fix that? 🥹)
 </p>
 
 <h3>🚫 OTHER DNI 🚫</h3>
