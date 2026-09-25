@@ -116,6 +116,10 @@
 <!-- ==================== CRAIG ==================== -->
 
 <p align="center">
+  <img src="https://64.media.tumblr.com/075350768430b146f8f7b754a1e2429b/5b5768b53aad21c8-b5/s1280x1920/9c71247920dd4d8d4b2ded9b8879139d3dc88d9f.pnj">
+</p>
+
+<p align="center">
   <img src="https://blinkie.world/blinkies/blue%20blinkies/SPACE%20GIRL.gif">
 </p>
 
@@ -136,10 +140,14 @@
        alt="Animated GIF from Tumblr">
 </p>
 
+<p align="center">ALL BLINKIES USED BELONG TO THEIR RESPECTIVE OWNERS!!! 
+
+<p align="center">
+  <img src="https://64.media.tumblr.com/075350768430b146f8f7b754a1e2429b/5b5768b53aad21c8-b5/s1280x1920/9c71247920dd4d8d4b2ded9b8879139d3dc88d9f.pnj">
+</p>
+
 
 <hr>
-
-<p align="center">ALL BLINKIES USED BELONG TO THEIR RESPECTIVE OWNERS!!! 
 
 <!-- ==================== BYI / DNI ==================== -->
 
