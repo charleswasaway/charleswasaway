@@ -269,3 +269,7 @@ them for me!! ♡
        width="100"
        alt="Pony Town character">
 </p>
+
+<p align="center">
+  <img src="https://i9.glitter-graphics.org/pub/63/63999d54tol32zj.gif">
+</p>
