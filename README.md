@@ -165,10 +165,6 @@
 <h2>⚠ PLEASE READ BYI ⚠</h2>
 
 <p>
-<b>18+ ONLY</b>
-</p>
-
-<p>
 Anyone under 18, please DNI. I’m not comfortable interacting with minors
 and prefer to keep my online spaces strictly 18+.
 </p>
