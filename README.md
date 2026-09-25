@@ -166,11 +166,11 @@
 
 <p>
 Anyone under 18, PLEASEEE DNI. I really don't want to interact or deal w/minors
-and prefer to keep my online spaces strictly 18+.
+and prefer to keep my online spaces strictly 18+
 </p>
 
 <p>
-Following me on GitHub, signing my Strawpage/Ata, or wanting to C+H is fine, as long as you don’t try to actively talk to me.
+Following me on GitHub, signing my Strawpage/Ata, or wanting to C+H is OKAY! Just as long as you don’t try to actively talk to me.
 </p>
 
 <p>
