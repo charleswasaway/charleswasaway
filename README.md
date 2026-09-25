@@ -175,7 +175,7 @@ and prefer to keep my online spaces strictly 18+.
 
 <p>
 If you’re under 18, please don’t message or engage with me. Following me
-on GitHub or wanting C+H is fine, as long as you don’t try to talk to me.
+on GitHub or wanting to C+H is fine, as long as you don’t try to talk to me.
 </p>
 
 <p>
