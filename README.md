@@ -182,7 +182,7 @@ easier, safer, and less stressful for me.
 <p>
 I mainly stay in the Safe Server because most of my adult friends are there
 and prefer it due to the inappropriate topics often discussed in the 18+
-Server. (And because there isn't a South Park area in the 18+ server, can we please fix that? 🥹)
+Server. (And because most of my fandoms don't have their own area in the 18+ Server, can we please fix that? 🥹)
 </p>
 
 <h3>🚫 OTHER DNI 🚫</h3>
