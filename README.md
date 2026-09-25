@@ -7,7 +7,7 @@
 </p>
 
 <p align="center">
-  <img src="https://blinkie.world/blinkies/red%20blinkies/Nosey%20Little%20Fucker,%20Aren't%20You_.gif">
+  <img src="https://blinkie.world/blinkies/red%20blinkies/What'choo%20be%20lookin'%20at_!.gif">
 </p>
 
 <p align="center">
@@ -96,13 +96,14 @@
   <img src="https://64.media.tumblr.com/c1eabba4cfcc2dd1b1b5b5fae2d5b949/9eb06495f8f9f32f-f4/s250x400/ceed188664c3416c39cf0d85b761b123c31088c9.gifv">
   <img src="https://64.media.tumblr.com/25f7089d089a0d45f355786e77b8f84d/6c847a1b8fc7c2a4-3a/s250x400/9fcad51a54f302a75959dfb02e5c0bb75f5bebe6.gifv">
   <img src="https://64.media.tumblr.com/cd977e094f3c095e659e44f43bca58e9/9eb06495f8f9f32f-cf/s250x400/ff56abeb26c54e872d7b0f1bb63cd6e6131845c8.gifv">
-  <img src="https://external-media.spacehey.net/media/sBZFpEqhLs88qTy_pmqvQHcucnvravm3T0UPfBatY7Ts=/https://i.ibb.co/122T2ZF/i-love-edibles-02.gif">
-</p>
 
 <p align="center">
   <img src="https://external-media.spacehey.net/media/sWj2Qm9ZQhG2Z7ykocZB21V-UMh_nE8KMDSZ6IqFAUVA=/https://64.media.tumblr.com/e6362766a6a237621196b3119b9bc4f1/e9245d00abaed69b-dd/s250x400/2c432f9779339a2d825eaca56b99c3cad24a1a5a.gifv">
   <img src="https://i9.glitter-graphics.org/pub/682/682529q9ove2jdal.gif">
   <img src="https://adriansblinkiecollection.neocities.org/q1.gif">
+</p>
+<p align="center">
+  <img src="https://blinkie.world/blinkies/black%20blinkies/TV%20GIRL.gif">
 </p>
 
 
