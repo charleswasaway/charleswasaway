@@ -251,18 +251,18 @@ If you want my Discord, send me a whisper!
 
 <p align="center">
 I love showcasing my cosplays, so if you’d like to take inspiration from
-something I’ve made, please just ask first! As long as you’re not copying
-the entire thing, I don't mind people taking inspiration.
+something I’ve made, please just ask first! <b>As long as you’re not copying
+the entire thing, I don't mind people taking inspiration.<b>
 </p>
 
 <p align="center">
-Please don't screenshot or upload my cosplays elsewhere UNLESS you let me
-know beforehand AND credit me within the post.
+Please don't screenshot or upload my cosplays elsewhere <b>UNLESS<b> you let me
+know beforehand <b>AND<b> credit me within the post. <b>DO NOT CLAIM ANY OF MY PONIES AS YOURS.<b>
 </p>
 
 <p align="center">
 Any cosplay with the <b>🎁</b> emoji in its name was <b>GIFTED TO ME</b>.
-I did NOT make those cosplays. Huge thank you to the friends who made
+I did <b>NOT<b> make those cosplays. Huge thank you to the friends who made
 them for me!! ♡
 </p>
 
