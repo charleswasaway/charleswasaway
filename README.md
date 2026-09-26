@@ -260,8 +260,8 @@ Please don't screenshot or upload my ponies elsewhere UNLESS you ask me first AN
 </p>
 
 <p align="center">
-Any cosplay with the <b>🎁</b> emoji in its name was <b>GIFTED TO ME</b>.
-I did <b>NOT<b> make those ponies. Huge thank you to the friends who made
+Any cosplay with the 🎁 emoji in its name was GIFTED TO ME.
+I did NOT make those ponies. Huge thank you to the friends who made
 them for me!! ♡
 </p>
 
