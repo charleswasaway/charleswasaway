@@ -256,8 +256,8 @@ the entire thing, I don't mind people taking inspiration.<b>
 </p>
 
 <p align="center">
-Please don't screenshot or upload my cosplays elsewhere <b>UNLESS<b> you let me
-know beforehand <b>AND<b> credit me within the post. <b>DO NOT CLAIM ANY OF MY PONIES AS YOURS.<b>
+Please don't screenshot or upload my cosplays elsewhere UNLESS you let me
+know beforehand AND credit me within the post. <b>DO NOT CLAIM ANY OF MY PONIES AS YOURS.<b>
 </p>
 
 <p align="center">
