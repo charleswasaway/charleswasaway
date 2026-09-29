@@ -28,9 +28,9 @@
 <tr>
 
 <td align="center" width="25%">
-  <img src="https://media.discordapp.net/attachments/1405617441362546730/1552843460313219093/pony-town-i_love_you_like_an_alcoholic-dance-3-padded-16x.gif?ex=6ab715ab&is=6ab5c42b&hm=07e4f06575bcea1fb94a0f7d6f09567e62c4b97e2802df216d4440250b022416&="
+  <img src="https://github.com/user-attachments/assets/7be59f21-c1b8-4760-a91e-368a82c7bb46"
        width="150"
-       alt="Pony Town character">
+       alt="i-love-you-like-an-alcoholic">
 </td>
 
 <td align="center" width="50%">
@@ -40,14 +40,13 @@
 </td>
 
 <td align="center" width="25%">
-  <img src="https://media.discordapp.net/attachments/1405617441362546730/1552843461454077992/pony-town-the_three_js_afk___w2i-dance-3-padded-toy134-16x.gif?ex=6ab715ab&is=6ab5c42b&hm=4ba2b02e847f051a0c2c52474ee57f39d29a8fe1ee51fb4e5a42ff200f9b88b1&="
+  <img src="https://github.com/user-attachments/assets/6e35be6c-adf8-4a73-a8d1-669d5a9f5209"
        width="150"
-       alt="Pony Town character">
+       alt="three-js-afk">
 </td>
 
 </tr>
 </table>
-
 
 <!-- ==================== BLINKIES ==================== -->
 
