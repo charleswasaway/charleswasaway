@@ -137,7 +137,7 @@
        alt="Craig Tucker">
 </p>
 <b>
-<p align="center">I’m a heavy Craig Tucker fictionkin, and I’d rather not have doubles interact w/ me. If you do choose to interact, PLEASE be respectful of my boundaries and understand that I may be uncomfortable with it. Also, please don’t harass me or give me a hard time about my identity or how I feel about doubles. <3
+<p align="center">I’m a heavy Craig Tucker fictionkin, and I’d rather not have doubles interact w/ me. If you do choose to interact, PLEASE be respectful of my boundaries and understand that I may be uncomfortable with it. Please don’t harass me about it, thank you! <3
 
 <p align="center">
   <img src="https://64.media.tumblr.com/075350768430b146f8f7b754a1e2429b/5b5768b53aad21c8-b5/s1280x1920/9c71247920dd4d8d4b2ded9b8879139d3dc88d9f.pnj">
