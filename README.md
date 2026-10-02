@@ -136,13 +136,8 @@
        width="280"
        alt="Craig Tucker">
 </p>
-
-<p align="center">
-  <img src="https://64.media.tumblr.com/b5c1e75e96805d6d1545e0f4f8dcb09d/5a4e39f4261065ad-e3/s640x960/b81ab217bc1bd0b98f7ec7bcc7d2863f05c8b85c.gif"
-       alt="Animated GIF from Tumblr">
-</p>
-
-<p align="center">ALL BLINKIES USED BELONG TO THEIR RESPECTIVE OWNERS!!! 
+<b>
+<p align="center">I’m a heavy Craig Tucker fictionkin, and I’d rather not have doubles interact w/ me. If you do choose to interact, PLEASE be respectful of my boundaries and understand that I may be uncomfortable with it. Also, please don’t harass me or give me a hard time about my identity or how I feel about doubles. <3
 
 <p align="center">
   <img src="https://64.media.tumblr.com/075350768430b146f8f7b754a1e2429b/5b5768b53aad21c8-b5/s1280x1920/9c71247920dd4d8d4b2ded9b8879139d3dc88d9f.pnj">
