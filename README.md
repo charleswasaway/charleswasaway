@@ -250,7 +250,7 @@ the entire thing, I don't mind people taking inspiration.<b>
 </p>
 
 <p align="center">
-Please don't screenshot or upload my ponies elsewhere UNLESS you ask me first AND credit me within the post. <b>DO NOT CLAIM ANY OF MY PONIES AS YOURS.<b>
+DON'T screenshot or upload my ponies elsewhere and claim them as yours under ANY circumstances.<b>
 </p>
 
 <p align="center">
