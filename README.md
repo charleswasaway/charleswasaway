@@ -121,22 +121,12 @@
   <img src="https://64.media.tumblr.com/075350768430b146f8f7b754a1e2429b/5b5768b53aad21c8-b5/s1280x1920/9c71247920dd4d8d4b2ded9b8879139d3dc88d9f.pnj">
 </p>
 
-<p align="center">
-  <img src="https://blinkie.world/blinkies/blue%20blinkies/SPACE%20GIRL.gif">
-</p>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/a485965b2ead75bd690407872575885a/301e2479ca8b2b40-1c/s250x400/0911d35ecccd3a17c5b1e3f66e4d1381c3136672.gif"
-       width="250"
-       alt="Craig Tucker">
+  <img width="300" height="450" alt="Untitled Design" src="https://github.com/user-attachments/assets/027f60b8-30c3-47b0-ad5d-629ca1063329" />
 </p>
 
-<p align="center">
-  <img src="https://media.tenor.com/_c6IWfUT08sAAAAd/craig-craig-tucker.gif"
-       width="280"
-       alt="Craig Tucker">
-</p>
-<b>
+<p align="center">ME AT THE LIVING TOMBSTONE CONCERT! 
 
 
 <p align="center">
